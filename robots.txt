@@ -1,3 +1,2 @@
 User-agent: *
 Allow: /
-Sitemap: https://simaan5.github.io/walmart-deals/sitemap.xml

@@ -1,11 +1,5 @@
 
 (function(){
-  var tb=document.getElementById('themeBtn');
-  if(tb){tb.addEventListener('click',function(){
-    var n=document.documentElement.getAttribute('data-theme')==='light'?'dark':'light';
-    document.documentElement.setAttribute('data-theme',n);
-    try{localStorage.setItem('sd-theme',n);}catch(e){}
-  });}
   var q=document.getElementById('q'), sort=document.getElementById('sort');
   var grid=document.querySelector('.grid'), none=document.getElementById('noresults');
   if(!grid) return;

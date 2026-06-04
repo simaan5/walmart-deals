@@ -127,7 +127,6 @@ h2{font-family:var(--disp);font-weight:700;letter-spacing:-.02em;font-size:26px;
 footer{position:relative;z-index:2;max-width:1240px;margin:50px auto 0;padding:30px 22px 50px;border-top:1px solid var(--line);color:var(--muted);font-size:13px}
 .foot-cta{font-family:var(--disp);font-size:22px;color:var(--ink);margin-bottom:14px}
 .foot-cta a{color:var(--accent);font-weight:700}
-.socials{margin:10px 0;font-size:14px}.socials a{color:var(--accent);font-weight:600}
 .fineprint{font-size:12px;opacity:.85}
 
 @media(max-width:760px){

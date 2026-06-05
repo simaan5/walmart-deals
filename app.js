@@ -13,6 +13,8 @@
     nt.setAttribute('aria-expanded',open?'true':'false');
   });}
   if(nb){nb.addEventListener('click',closeNav);}
+  var nc=document.getElementById('navClose');
+  if(nc){nc.addEventListener('click',closeNav);}
   [].slice.call(document.querySelectorAll('#navLinks a')).forEach(function(a){a.addEventListener('click',closeNav);});
   document.addEventListener('keydown',function(e){if(e.key==='Escape')closeNav();});
   var q=document.getElementById('q'), sort=document.getElementById('sort');

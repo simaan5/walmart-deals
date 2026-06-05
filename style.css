@@ -155,6 +155,11 @@ h2{font-family:var(--disp);font-weight:700;letter-spacing:-.02em;font-size:26px;
   font-size:13.5px;padding:9px 17px;border-radius:999px;cursor:pointer;transition:all .18s;white-space:nowrap}
 .chip:hover{color:var(--ink);border-color:rgba(255,255,255,.3)}
 .chip.active{background:linear-gradient(135deg,var(--accent),var(--accent-2));color:#fff;border-color:transparent;box-shadow:var(--glow)}
+.chips.stores{padding-top:0;align-items:center}
+.chips-label{flex:0 0 auto;font-size:11px;font-weight:700;letter-spacing:.09em;text-transform:uppercase;color:var(--faint);margin-right:4px}
+.store-badge{display:inline-flex;align-items:center;font-size:10px;font-weight:800;letter-spacing:.04em;text-transform:uppercase;
+  color:var(--sf,#fff);background:var(--sb,#3a3a3a);padding:4px 9px;border-radius:999px;line-height:1;white-space:nowrap}
+.feature-img .store-badge{position:absolute;top:14px;right:14px;font-size:11px;padding:6px 11px;box-shadow:0 8px 22px -8px rgba(0,0,0,.65)}
 
 /* grid + cards */
 .grid{display:grid;grid-template-columns:repeat(auto-fill,minmax(250px,1fr));gap:22px;margin-top:6px}

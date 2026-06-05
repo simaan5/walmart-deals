@@ -1,20 +1,5 @@
 
 (function(){
-  var tb=document.getElementById('themeBtn');
-  if(tb){tb.addEventListener('click',function(){
-    var n=document.documentElement.getAttribute('data-theme')==='light'?'dark':'light';
-    document.documentElement.setAttribute('data-theme',n);
-    try{localStorage.setItem('sd-theme',n);}catch(e){}
-  });}
-  var nt=document.getElementById('navToggle'), nb=document.getElementById('navBackdrop');
-  function closeNav(){document.body.classList.remove('nav-open');if(nt)nt.setAttribute('aria-expanded','false');}
-  if(nt){nt.addEventListener('click',function(){
-    var open=document.body.classList.toggle('nav-open');
-    nt.setAttribute('aria-expanded',open?'true':'false');
-  });}
-  if(nb){nb.addEventListener('click',closeNav);}
-  [].slice.call(document.querySelectorAll('#navLinks a')).forEach(function(a){a.addEventListener('click',closeNav);});
-  document.addEventListener('keydown',function(e){if(e.key==='Escape')closeNav();});
   var q=document.getElementById('q'), sort=document.getElementById('sort');
   var grid=document.querySelector('.grid'), none=document.getElementById('noresults');
   if(!grid) return;

@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Jun 05, 2026
+# SnagDaily Instagram kit — Jun 06, 2026
 
 ## POST 1 — post_1.png
 
@@ -14,31 +14,7 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Clifford the Big Red Dog (DVD) is just $5.00 (was $24.96)! That's 80% OFF — you save $19.96. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — Dr Teal s Relax & Relief Bath & Body Oil with Eucalyptus & Spearmint Essential Oils  8.8 fl oz is just $5.87 (was $26.36)! That's 77% OFF — you save $20.49. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
-
----
-
-## POST 4 — post_4.png
-
-👀 This one won't last — Loctite Super Glue Gel Tube  1 Pack of 2 Tubes  Clear 0.07 oz Tubes is just $2.94 (was $12.99)! That's 77% OFF — you save $10.05. 💰
+🏃 RUN — don't walk — Klean-Strip Green Household Paint Thinner  1 Quart is just $8.97 (was $41.78)! That's 78% OFF — you save $32.81. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,39 +24,63 @@
 
 ---
 
-## POST 5 — post_5.png
+## POST 3 — post_3.png
 
-💸 Deal of the day — Rain-X All Season 2-in-1 Windshield Washer Fluid is just $4.97 (was $16.59)! That's 70% OFF — you save $11.62. 💰
+🚨 Hot markdown alert — Matchbox Truck with Moving Parts  Working Rigs Toy Truck (Styles My Vary  Items May Not be Pictured) is just $5.94 (was $25.47)! That's 76% OFF — you save $19.53. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+
+---
+
+## POST 4 — post_4.png
+
+👀 This one won't last — OXO Softworks 13  Nylon Cooking Spoon  Black is just $9.97 (was $37.84)! That's 73% OFF — you save $27.87. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Softsoap Moisturizing Body Wash  All Skin Types  Hawaiian Luau  Jasmine and Vanilla  20 fl oz Bottle is just $4.97 (was $16.61)! That's 70% OFF — you save $11.64. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 UNO Golf Card Game for Kid  Adult & Family Nights  Parties & Travel  Includes 112 Cards dropped to $6.97 (was $17.90) — 61% OFF!
+🔥 STEAL ALERT 🤯 Permatex 85184 Bulb Grease Protects Electrical Connections  .5 oz dropped to $3.12 (was $7.83) — 60% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Feit Electric 4.5W Color Changing Party LED Light  A19 Bulb  Medium Base Type  Non-Dimmable dropped to $6.97 (was $17.67) — 60% OFF!
+🏃 RUN don't walk 🤯 The Last of Us Part I - PlayStation 5 dropped to $29.00 (was $69.99) — 58% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -98,7 +98,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Purina Cat Chow Gentle Sensitive Stomach and Skin Dry Cat Food  Whole Grain  3.15 lb Bag dropped to $6.28 (was $20.42) — 69% OFF!
+👀 Don't sleep on this 🤯 Hartz Delectables Bisque Tuna & Chicken Lickable Wet Cat Treats  1.4oz (5 Count) dropped to $5.87 (was $17.99) — 67% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -113,9 +113,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 🔥 TODAY'S TOP DEALS — up to 85% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Wellness Complete Health Sensitive Skin and  — $19.98
-2. Clifford the Big Red Dog (DVD) — $5.00
-3. Dr Teal s Relax & Relief Bath & Body Oil wit — $5.87
-4. Loctite Super Glue Gel Tube  1 Pack of 2 Tub — $2.94
+2. Klean-Strip Green Household Paint Thinner  1 — $8.97
+3. Matchbox Truck with Moving Parts  Working Ri — $5.94
+4. OXO Softworks 13  Nylon Cooking Spoon  Black — $9.97
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

@@ -1,20 +1,20 @@
-# SnagDaily Instagram kit — Jun 06, 2026
+# SnagDaily Instagram kit — Jun 07, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Wellness Complete Health Sensitive Skin and Stomach Dry Dog Food  Wholesome Grain Kibble  Natural  Chicken Free  Salmon and Rice Recipe  5 lb Bag is just $19.98 (was $133.66)! That's 85% OFF — you save $113.68. 💰
+🔥 Today's steal — Black  Rust-Oleum Automotive Sandable Primer Spray-249418  12 oz is just $7.47 (was $68.99)! That's 89% OFF — you save $61.52. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Klean-Strip Green Household Paint Thinner  1 Quart is just $8.97 (was $41.78)! That's 78% OFF — you save $32.81. 💰
+🏃 RUN — don't walk — Integra Pink Pencil Cap Erasers is just $4.43 (was $22.19)! That's 80% OFF — you save $17.76. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -26,7 +26,19 @@
 
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — Matchbox Truck with Moving Parts  Working Rigs Toy Truck (Styles My Vary  Items May Not be Pictured) is just $5.94 (was $25.47)! That's 76% OFF — you save $19.53. 💰
+🚨 Hot markdown alert — Multipet Minipet Berman Bears Dog Toy  7 is just $5.20 (was $23.31)! That's 77% OFF — you save $18.11. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+
+---
+
+## POST 4 — post_4.png
+
+👀 This one won't last — Baby Three Liila s Garden Tea Party Mini - Blind Box is just $9.97 (was $34.99)! That's 71% OFF — you save $25.02. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,86 +48,74 @@
 
 ---
 
-## POST 4 — post_4.png
-
-👀 This one won't last — OXO Softworks 13  Nylon Cooking Spoon  Black is just $9.97 (was $37.84)! That's 73% OFF — you save $27.87. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
-
----
-
 ## POST 5 — post_5.png
 
-💸 Deal of the day — Softsoap Moisturizing Body Wash  All Skin Types  Hawaiian Luau  Jasmine and Vanilla  20 fl oz Bottle is just $4.97 (was $16.61)! That's 70% OFF — you save $11.64. 💰
+💸 Deal of the day — MLB The Show 25 - Xbox Series X is just $15.00 (was $49.00)! That's 69% OFF — you save $34.00. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Permatex 85184 Bulb Grease Protects Electrical Connections  .5 oz dropped to $3.12 (was $7.83) — 60% OFF!
+🔥 STEAL ALERT 🤯 Pacifica Scalp Love Rosemary Mint Serum 2 fl oz dropped to $9.97 (was $29.99) — 66% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 The Last of Us Part I - PlayStation 5 dropped to $29.00 (was $69.99) — 58% OFF!
+🏃 RUN don't walk 🤯 San Jamar Small Pull-Type Water Cup Dispenser  White dropped to $15.02 (was $43.65) — 65% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Luvable Friends Baby Girl Plush Bathrobe  Floral  0-9M dropped to $11.99 (was $20.98) — 42% OFF!
+🚨 PRICE DROP 🤯 Julia Buxton Women s Heiress Pik-Me-Up Tab Card Case Leather  Navy dropped to $14.23 (was $40.00) — 64% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Hartz Delectables Bisque Tuna & Chicken Lickable Wet Cat Treats  1.4oz (5 Count) dropped to $5.87 (was $17.99) — 67% OFF!
+👀 Don't sleep on this 🤯 GHIRARDELLI Dark Chocolate Candy SQUARES with Sea Salt Caramel Filling  5.32 oz Bag dropped to $6.78 (was $14.92) — 54% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 85% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 89% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Wellness Complete Health Sensitive Skin and  — $19.98
-2. Klean-Strip Green Household Paint Thinner  1 — $8.97
-3. Matchbox Truck with Moving Parts  Working Ri — $5.94
-4. OXO Softworks 13  Nylon Cooking Spoon  Black — $9.97
+1. Black  Rust-Oleum Automotive Sandable Primer — $7.47
+2. Integra Pink Pencil Cap Erasers — $4.43
+3. Multipet Minipet Berman Bears Dog Toy  7 — $5.20
+4. Baby Three Liila s Garden Tea Party Mini - B — $9.97
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

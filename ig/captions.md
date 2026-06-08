@@ -26,7 +26,7 @@
 
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — Prestone DOT 4 Motor Vehicle Brake Fluid for Cars and Trucks - 12 fl oz- Synthetic  High Grade  50 000 mile is just $5.97 (was $35.77)! That's 83% OFF — you save $29.80. 💰
+🚨 Hot markdown alert — STP Super Concentrated Fuel Injector Cleaner 5.25 FL OZ - Automotive Additive is just $3.38 (was $19.56)! That's 82% OFF — you save $16.18. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -114,7 +114,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 1. Black Adam (2022) (DVD) (Starring Dwayne Joh — $5.00
 2. Inaba Cheese & Chicken Flavor Soft Stick Tre — $11.55
-3. Prestone DOT 4 Motor Vehicle Brake Fluid for — $5.97
+3. STP Super Concentrated Fuel Injector Cleaner — $3.38
 4. Boardwalk BWK620 60 in. Quick Change Side-La — $10.54
 
 🔗 All of today's deals are in my bio → @snagdailydeals

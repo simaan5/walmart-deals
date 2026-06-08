@@ -98,13 +98,13 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Toymendous Rainbow 3D Pin Art - Novelty & Gag Toys  Kids  Unisex Ages 3+ dropped to $6.97 (was $17.98) — 61% OFF!
+👀 Don't sleep on this 🤯 Twizzlers Twists Strawberry Flavored Licorice Style Chewy Candy  Big Bag 32 oz dropped to $6.77 (was $14.95) — 54% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 

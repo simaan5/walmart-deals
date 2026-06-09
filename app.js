@@ -18,7 +18,7 @@
   [].slice.call(document.querySelectorAll('#navLinks a')).forEach(function(a){a.addEventListener('click',closeNav);});
   document.addEventListener('keydown',function(e){if(e.key==='Escape')closeNav();});
   var q=document.getElementById('q'), sort=document.getElementById('sort');
-  var grid=document.querySelector('.grid'), none=document.getElementById('noresults');
+  var grid=document.getElementById('dealgrid')||document.querySelector('.grid'), none=document.getElementById('noresults');
   if(!grid) return;
   var cards=[].slice.call(grid.querySelectorAll('.card')), cat='', store='';
   function apply(){
@@ -37,7 +37,11 @@
     });
     vis.forEach(function(c){grid.appendChild(c);});
   }
-  q && q.addEventListener('input', apply);
+  q && q.addEventListener('input', function(){
+    apply();
+    var all=document.getElementById('all');
+    if(all && q.value && window.scrollY < all.offsetTop-140){ all.scrollIntoView({behavior:'smooth'}); }
+  });
   sort && sort.addEventListener('change', apply);
   [].slice.call(document.querySelectorAll('.chips .chip')).forEach(function(ch){
     ch.addEventListener('click', function(){

@@ -269,10 +269,11 @@ h2{font-family:var(--disp);font-weight:700;letter-spacing:-.02em;font-size:26px;
 /* compliant Amazon cards (no price/image/code until PA-API) */
 .amz-thumb{background:radial-gradient(120% 100% at 50% 0,#37475a,#232f3e 70%);
   box-shadow:inset 0 0 0 1px rgba(255,153,0,.14),inset 0 1px 0 rgba(255,255,255,.05)}
-.amz-mark{font-family:var(--disp);font-weight:800;font-size:38px;line-height:1;color:#ff9900;
-  position:relative;text-transform:lowercase;letter-spacing:-.03em;padding-bottom:13px}
-.amz-mark::after{content:"";position:absolute;left:2%;right:2%;bottom:0;height:14px;
-  border-bottom:4px solid #ff9900;border-radius:0 0 48% 48%/0 0 100% 100%}
+/* Plain text label in OUR typography — a nominative reference to the retailer,
+   NOT a recreation of the Amazon logo (Amazon Trademark Guidelines forbid
+   recreating/altering their marks; only marks they supply may be displayed). */
+.amz-mark{font-family:var(--disp);font-weight:700;font-size:30px;line-height:1;color:rgba(255,255,255,.92);
+  letter-spacing:.01em}
 .amz-card .cta{margin-top:10px}
 .sort{font:inherit;font-weight:600;font-size:14px;padding:11px 16px;border-radius:12px;border:1px solid var(--line-2);background:var(--glass-2);color:var(--ink);cursor:pointer}
 .cat-cards{display:grid;grid-template-columns:repeat(auto-fill,minmax(196px,1fr));gap:14px}

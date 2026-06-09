@@ -194,6 +194,11 @@ h2{font-family:var(--disp);font-weight:700;letter-spacing:-.02em;font-size:26px;
 .now{font-family:var(--disp);font-weight:800;font-size:25px;letter-spacing:-.02em;color:var(--ink)}
 .was{color:var(--faint);text-decoration:line-through;font-size:14px}
 .save{font-size:12px;font-weight:700;color:var(--emerald);background:rgba(40,204,139,.12);border:1px solid rgba(40,204,139,.25);padding:3px 9px;border-radius:999px}
+.code{display:inline-block;align-self:flex-start;font-size:12.5px;font-weight:800;letter-spacing:.02em;color:#1c140a;
+  background:var(--gold);padding:5px 11px;border-radius:8px}
+.amz-sec{position:relative;z-index:2;max-width:1280px;margin:8px auto 30px;padding:0 22px}
+.amz-h{font-family:var(--disp);font-weight:800;font-size:24px;color:var(--ink);margin:0 0 16px;display:flex;align-items:baseline;gap:8px;flex-wrap:wrap}
+.amz-h span{font-family:var(--body);font-weight:500;font-size:15px;color:var(--muted)}
 .cta{display:flex;align-items:center;justify-content:center;gap:.3em;margin-top:4px;font-weight:700;font-size:14.5px;
   padding:13px;border-radius:13px;color:var(--ink);background:var(--glass-2);border:1px solid var(--line-2);transition:all .22s}
 .cta:hover{background:linear-gradient(135deg,var(--accent),var(--accent-2));color:#fff;border-color:transparent;box-shadow:var(--glow)}

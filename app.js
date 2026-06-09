@@ -51,4 +51,46 @@
       apply();
     });
   });
+  // ── sticky search + category bar ──
+  var q2=document.getElementById('q2'), bar=document.getElementById('stickybar');
+  // Two-way mirror q <-> q2: set partner value then dispatch a native 'input'
+  // event so the EXISTING #q listener (which calls apply()) runs. A guard flag
+  // prevents the dispatched event from echoing back into an infinite loop.
+  if(q && q2){
+    var syncing=false;
+    function mirror(from,to){
+      if(syncing) return; syncing=true;
+      to.value=from.value;
+      to.dispatchEvent(new Event('input',{bubbles:true}));
+      syncing=false;
+    }
+    q2.addEventListener('input', function(){ mirror(q2,q); });
+    q.addEventListener('input', function(){ if(!syncing) q2.value=q.value; });
+  }
+  // Sticky chips proxy to the real #all category chips so all filter/active
+  // state stays in the existing '.chips .chip' handler (no duplicated logic).
+  var sbChips=document.getElementById('sbChips');
+  var realCats=document.querySelector('#all .chips.cats');
+  if(sbChips && realCats){
+    [].slice.call(sbChips.querySelectorAll('.schip')).forEach(function(sc){
+      sc.addEventListener('click', function(){
+        var sa=sbChips.querySelector('.schip.active');
+        if(sa)sa.classList.remove('active'); sc.classList.add('active');
+        var target=realCats.querySelector('.chip[data-cat="'+(sc.dataset.cat||'')+'"]');
+        if(target) target.click();
+      });
+    });
+  }
+  // Reveal the bar only once the hero search has scrolled out of view.
+  var heroSearch=document.querySelector('.hero-search');
+  if(bar && heroSearch && 'IntersectionObserver' in window){
+    var io=new IntersectionObserver(function(entries){
+      entries.forEach(function(en){
+        var show=!en.isIntersecting;
+        bar.classList.toggle('visible', show);
+        bar.setAttribute('aria-hidden', show?'false':'true');
+      });
+    }, {rootMargin:'-56px 0px 0px 0px', threshold:0});
+    io.observe(heroSearch);
+  }
 })();

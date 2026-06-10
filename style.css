@@ -2,7 +2,7 @@
 :root{
   --bg:#0c0a08; --bg-soft:#16120d; --ink:#f5efe4; --muted:#a99e8d; --faint:#6d6555;
   --line:rgba(255,255,255,.09); --line-2:rgba(255,255,255,.15);
-  --glass:rgba(255,255,255,.05); --glass-2:rgba(255,255,255,.08); --panel:#fbf8f2;
+  --glass:rgba(255,255,255,.05); --glass-2:rgba(255,255,255,.08); --panel:#e7e1d5;
   --nav-bg:rgba(12,10,8,.72); --hero-bg:linear-gradient(160deg,rgba(255,255,255,.06),rgba(255,255,255,.02));
   --feature-bg:rgba(255,255,255,.05); --ticker-fg:#ffd6c8; --eyebrow-fg:#ffb29c;
   --accent:#ff5a36; --accent-2:#ff8a5b; --emerald:#28cc8b; --gold:#ecc04a;
@@ -244,6 +244,7 @@ h2{font-family:var(--disp);font-weight:700;letter-spacing:-.02em;font-size:26px;
 .sec-mark{font-size:.74em;margin-right:.12em;opacity:.9}
 .sec-sub{margin:4px 0 0;color:var(--muted);font-size:14px;line-height:1.45;letter-spacing:.005em;text-wrap:pretty}
 .sec-more{font-weight:700;font-size:14px;color:var(--accent);white-space:nowrap;transition:color var(--t-fast)}
+html[data-theme="light"] .sec-more{color:#c4390f}
 .sec-more:hover .arr{transform:translateX(4px)}
 /* env-gated newsletter capture band (renders nothing unless NEWSLETTER_ACTION set) */
 .newsletter{display:flex;align-items:center;justify-content:space-between;gap:22px 32px;flex-wrap:wrap;
@@ -269,13 +270,12 @@ h2{font-family:var(--disp);font-weight:700;letter-spacing:-.02em;font-size:26px;
 .newsletter--foot{margin-bottom:20px;padding:18px 20px}
 .newsletter--foot .nl-h{font-size:var(--step-1)}
 /* compliant Amazon cards (no price/image/code until PA-API) */
-.amz-thumb{background:radial-gradient(120% 100% at 50% 0,#37475a,#232f3e 70%);
-  box-shadow:inset 0 0 0 1px rgba(255,153,0,.14),inset 0 1px 0 rgba(255,255,255,.05)}
-/* Plain text label in OUR typography — a nominative reference to the retailer,
-   NOT a recreation of the Amazon logo (Amazon Trademark Guidelines forbid
-   recreating/altering their marks; only marks they supply may be displayed). */
-.amz-mark{font-family:var(--disp);font-weight:700;font-size:30px;line-height:1;color:rgba(255,255,255,.92);
-  letter-spacing:.01em}
+/* Editorial tile (image-less for Amazon compliance) — warm + on-palette with a
+   product-relevant emoji, so it reads as an intentional pick, not a broken image. */
+.amz-thumb{background:var(--panel);flex-direction:column;gap:9px;
+  box-shadow:inset 0 0 0 1px var(--line),inset 0 1px 3px rgba(40,30,15,.05)}
+.amz-ico{font-size:52px;line-height:1}
+.amz-tag{font-size:10px;font-weight:800;letter-spacing:.08em;text-transform:uppercase;color:var(--accent)}
 .amz-card .cta{margin-top:10px}
 .sort{font:inherit;font-weight:600;font-size:14px;padding:11px 16px;border-radius:12px;border:1px solid var(--line-2);background:var(--glass-2);color:var(--ink);cursor:pointer}
 .cat-cards{display:grid;grid-template-columns:repeat(auto-fill,minmax(196px,1fr));gap:14px}
@@ -351,7 +351,7 @@ footer{position:relative;z-index:2;max-width:1280px;margin:60px auto 0;padding:3
 .foot-cta{font-family:var(--disp);font-size:24px;color:var(--ink);margin-bottom:14px}
 .foot-cta a{color:var(--accent-2);font-weight:700}
 .socials{margin:10px 0;font-size:14px}.socials a{color:var(--accent-2);font-weight:600}
-.fineprint{font-size:12px;color:var(--faint)}
+.fineprint{font-size:12px;color:var(--muted)}
 
 @media(max-width:900px){.hero-inner{grid-template-columns:1fr;gap:26px}}
 @media(max-width:760px){
@@ -439,7 +439,7 @@ footer{position:relative;z-index:2;max-width:1280px;margin:60px auto 0;padding:3
 .schip:hover{color:var(--ink);border-color:rgba(255,90,54,.4)}
 .schip.active{background:var(--ink);color:var(--bg-soft);border-color:transparent;box-shadow:var(--shadow)}
 @media(max-width:760px){
-  .stickybar{top:0}
+  .stickybar{top:54px}
   .stickybar-in{padding:8px 14px;gap:10px}
   .sb-search{width:46%}
   .sb-search input{font-size:14px;padding:9px 12px 9px 34px}

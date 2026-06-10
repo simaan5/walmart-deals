@@ -7,10 +7,15 @@
     try{localStorage.setItem('sd-theme',n);}catch(e){}
   });}
   var nt=document.getElementById('navToggle'), nb=document.getElementById('navBackdrop');
-  function closeNav(){document.body.classList.remove('nav-open');if(nt)nt.setAttribute('aria-expanded','false');}
+  var nd=document.getElementById('navDrawer');
+  function setNav(open){
+    document.body.classList.toggle('nav-open',open);
+    if(nt)nt.setAttribute('aria-expanded',open?'true':'false');
+    if(nd)nd.setAttribute('aria-hidden',open?'false':'true');  // a11y: don't trap focus in an aria-hidden subtree
+  }
+  function closeNav(){setNav(false);}
   if(nt){nt.addEventListener('click',function(){
-    var open=document.body.classList.toggle('nav-open');
-    nt.setAttribute('aria-expanded',open?'true':'false');
+    setNav(!document.body.classList.contains('nav-open'));
   });}
   if(nb){nb.addEventListener('click',closeNav);}
   var nc=document.getElementById('navClose');

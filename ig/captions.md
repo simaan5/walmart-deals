@@ -1,32 +1,20 @@
-# SnagDaily Instagram kit — Jun 11, 2026
+# SnagDaily Instagram kit — Jun 12, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — FATTY Meat Sticks  Made with Grass Fed Beef  Pork Raised Without Antibiotics  12g Protein Per Stick  Honey BBQ  2 oz. is just $2.68 (was $41.95)! That's 93% OFF — you save $39.27. 💰
+🔥 Today's steal — (12 pack) Purina Fancy Feast Grilled Kitten Food  Wet Cat Food  Salmon Feast in Gravy  3 oz Can is just $11.52 (was $126.72)! That's 90% OFF — you save $115.20. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Reebok Women s Underwear Flex Rib Hi-Cut Thong Panties  3-Pack  Sizes XS-3XL is just $9.98 (was $94.74)! That's 89% OFF — you save $84.76. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — Coghlan s Tick Remover Tool with Spring-Loaded Claw for Easy Gentle Removal is just $4.49 (was $22.01)! That's 79% OFF — you save $17.52. 💰
+🏃 RUN — don't walk — 3M 8200 Lawn and Garden Respirator  N95  2 per Pack is just $5.48 (was $31.00)! That's 82% OFF — you save $25.52. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,9 +24,33 @@
 
 ---
 
+## POST 3 — post_3.png
+
+🚨 Hot markdown alert — Braun Silk·expert Pro 3 IPL  PL3221 is just $279.99 (was $999.99)! That's 72% OFF — you save $720.00. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+
+---
+
 ## POST 4 — post_4.png
 
-👀 This one won't last — Dorman HELP 65394 Gasket for TOYOTA RAV4 1992-2023 Oil Drain Plug is just $3.94 (was $18.95)! That's 79% OFF — you save $15.01. 💰
+👀 This one won't last — Euroco Solid Wood Kids Twin over Twin Bunk Bed with Slide and Ladder  Gray is just $168.00 (was $498.00)! That's 66% OFF — you save $330.00. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — FEL-PRO MS 97120 Plenum Gasket Set is just $9.44 (was $26.49)! That's 64% OFF — you save $17.05. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,33 +60,21 @@
 
 ---
 
-## POST 5 — post_5.png
-
-💸 Deal of the day — Time And Tru Women s Faux Suede Tall Fringe Boots is just $11.74 (was $49.98)! That's 76% OFF — you save $38.24. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
-
----
-
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 eos 24H Moisture Super Balm- Mango Kiwi  Limited-Edition Lip Sleeping Mask  0.35 fl oz  1 Pack dropped to $5.70 (was $23.97) — 76% OFF!
+🔥 STEAL ALERT 🤯 IZOD Men s & Big Men s Tech Rain Jacket  Up to Size 2XL dropped to $14.82 (was $40.95) — 63% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Believe by Brilliance Glass Stone Embellished Bow Hair Barrette  Female  1 Piece dropped to $6.00 (was $24.94) — 75% OFF!
+🏃 RUN don't walk 🤯 RINGS CHRY 383 426 CHEV 4 dropped to $54.54 (was $123.98) — 56% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -86,36 +86,36 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Komodo Artificial Green and Blue Plastic Succulent Plants with Gravel Base  3 Pack  Aquarium Decor dropped to $7.97 (was $31.07) — 74% OFF!
+🚨 PRICE DROP 🤯 Smart Step Toddlers  Medium Width Hook and Loop Leather Walking Shoes - Black  3 dropped to $15.45 (was $34.99) — 55% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Mainstays Plastic Roller Shower Curtain Rings  White  Set of 12 dropped to $3.96 (was $14.99) — 73% OFF!
+👀 Don't sleep on this 🤯 Fuggler Hairy Fuggs 9 inch (Munch Munch - Mono) Soft Plush  Ugly Monster Stuffed Animal Toy by ZURU dropped to $9.97 (was $22.18) — 55% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 93% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 90% OFF at Walmart! Which one are you grabbing? 👇
 
-1. FATTY Meat Sticks  Made with Grass Fed Beef  — $2.68
-2. Reebok Women s Underwear Flex Rib Hi-Cut Tho — $9.98
-3. Coghlan s Tick Remover Tool with Spring-Load — $4.49
-4. Dorman HELP 65394 Gasket for TOYOTA RAV4 199 — $3.94
+1. (12 pack) Purina Fancy Feast Grilled Kitten  — $11.52
+2. 3M 8200 Lawn and Garden Respirator  N95  2 p — $5.48
+3. Braun Silk·expert Pro 3 IPL  PL3221 — $279.99
+4. Euroco Solid Wood Kids Twin over Twin Bunk B — $168.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

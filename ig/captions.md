@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Jun 13, 2026
+# SnagDaily Instagram kit — Jun 14, 2026
 
 ## POST 1 — post_1.png
 
@@ -14,13 +14,13 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — (12 pack) Purina Fancy Feast Grilled Kitten Food  Wet Cat Food  Salmon Feast in Gravy  3 oz Can is just $11.52 (was $126.72)! That's 90% OFF — you save $115.20. 💰
+🏃 RUN — don't walk — NGK G-Power Platinum Spark Plug Fits select: 2008  2011 JEEP WRANGLER UNLIMITED is just $8.20 (was $44.53)! That's 81% OFF — you save $36.33. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -38,19 +38,19 @@
 
 ## POST 4 — post_4.png
 
-👀 This one won't last — Dorman 097-830CD Copper Drain Plug Gasket  Fits 11/16  M18 Fits select: 2008-2018 PORSCHE CAYENNE  1990-1993 DODGE W-SERIES is just $4.96 (was $23.72)! That's 79% OFF — you save $18.76. 💰
+👀 This one won't last — Skittles Original Chewy Candy  Share Size  4 oz  Bag is just $2.56 (was $12.00)! That's 78% OFF — you save $9.44. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
 ## POST 5 — post_5.png
 
-💸 Deal of the day — Braun Silk·expert Pro 3 IPL  PL3221 is just $279.99 (was $999.99)! That's 72% OFF — you save $720.00. 💰
+💸 Deal of the day — Ban Antiperspirant Deodorant Invisible Roll-On for Women and Men  Satin Breeze  3.5 oz is just $5.30 (was $21.96)! That's 75% OFF — you save $16.66. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -62,7 +62,7 @@
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Euroco Solid Wood Kids Twin over Twin Bunk Bed with Slide and Ladder  Gray dropped to $168.00 (was $498.00) — 66% OFF!
+🔥 STEAL ALERT 🤯 Sauder Canton Lane Lateral File  Brew Oak Finish dropped to $135.28 (was $479.99) — 71% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -74,31 +74,31 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Hudson Baby Infant Girl Non-Skid No-Show Socks  Pink Green  0-6 Months dropped to $9.50 (was $26.99) — 64% OFF!
+🏃 RUN don't walk 🤯 Dingo Wag n Wraps Slims Chicken and Pork Chew for Dogs  8-Count dropped to $5.78 (was $18.85) — 69% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Majorette Collection Die-Cast 1:64 Cars – Rubber Tires Showcase Included – Model Vehicles(1 Car; Styles May Vary  Items May Not Be Pictured) dropped to $7.94 (was $19.99) — 60% OFF!
+🚨 PRICE DROP 🤯 Badgley Mischka Diana Vegan Leather Tote Weekender Women s Travel Bag (Black) dropped to $69.99 (was $219.99) — 68% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 For Dummies Google Apps for Dummies  (Paperback) dropped to $14.99 (was $23.84) — 37% OFF!
+👀 Don't sleep on this 🤯 Sensitive Skin Stainless Steel 3/4 Hoops with Cubic Zirconia Stones for Women dropped to $5.00 (was $15.00) — 66% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -113,9 +113,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 🔥 TODAY'S TOP DEALS — up to 92% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Dritz 1-1/4  Cotton Belting for Straps and H — $4.00
-2. (12 pack) Purina Fancy Feast Grilled Kitten  — $11.52
+2. NGK G-Power Platinum Spark Plug Fits select: — $8.20
 3. The Last Voyage of the Demeter (DVD) — $5.00
-4. Dorman 097-830CD Copper Drain Plug Gasket  F — $4.96
+4. Skittles Original Chewy Candy  Share Size  4 — $2.56
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

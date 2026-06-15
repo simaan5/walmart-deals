@@ -1,8 +1,8 @@
-# SnagDaily Instagram kit — Jun 14, 2026
+# SnagDaily Instagram kit — Jun 15, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Dritz 1-1/4  Cotton Belting for Straps and Handles  15-Yards  Black is just $4.00 (was $52.35)! That's 92% OFF — you save $48.35. 💰
+🔥 Today's steal — On the Surface Letter Board with Peg Letters  Wooden Letter Board & Black Letter Sheet  10” x 10” is just $9.62 (was $646.18)! That's 98% OFF — you save $636.56. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -14,7 +14,31 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — NGK G-Power Platinum Spark Plug Fits select: 2008  2011 JEEP WRANGLER UNLIMITED is just $8.20 (was $44.53)! That's 81% OFF — you save $36.33. 💰
+🏃 RUN — don't walk — Wellness Old Mother Hubbard Classic Original Mix Biscuits Baked Dog Treats  Mini 16 Ounce Bag is just $4.92 (was $34.72)! That's 85% OFF — you save $29.80. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+
+---
+
+## POST 3 — post_3.png
+
+🚨 Hot markdown alert — EasyLiner Removable Adhesive Shelf Liner  Gray Quatrefoil 20  x 15  Roll is just $6.47 (was $37.37)! That's 82% OFF — you save $30.90. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+
+---
+
+## POST 4 — post_4.png
+
+👀 This one won't last — NGK G-Power Platinum Spark Plug Fits select: 2008  2011 JEEP WRANGLER UNLIMITED is just $8.20 (was $44.53)! That's 81% OFF — you save $36.33. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,21 +48,9 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 5 — post_5.png
 
-🚨 Hot markdown alert — The Last Voyage of the Demeter (DVD) is just $5.00 (was $24.99)! That's 80% OFF — you save $19.99. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
-
----
-
-## POST 4 — post_4.png
-
-👀 This one won't last — Skittles Original Chewy Candy  Share Size  4 oz  Bag is just $2.56 (was $12.00)! That's 78% OFF — you save $9.44. 💰
+💸 Deal of the day — Skittles Original Chewy Candy  Share Size  4 oz  Bag is just $2.56 (was $12.00)! That's 78% OFF — you save $9.44. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,39 +60,27 @@
 
 ---
 
-## POST 5 — post_5.png
-
-💸 Deal of the day — Ban Antiperspirant Deodorant Invisible Roll-On for Women and Men  Satin Breeze  3.5 oz is just $5.30 (was $21.96)! That's 75% OFF — you save $16.66. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
-
----
-
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Sauder Canton Lane Lateral File  Brew Oak Finish dropped to $135.28 (was $479.99) — 71% OFF!
+🔥 STEAL ALERT 🤯 Jordan Peele 3-Movie Collection (Get Out / Us / Nope) (DVD) dropped to $5.00 (was $21.99) — 77% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Dingo Wag n Wraps Slims Chicken and Pork Chew for Dogs  8-Count dropped to $5.78 (was $18.85) — 69% OFF!
+🏃 RUN don't walk 🤯 Ban Antiperspirant Deodorant Invisible Roll-On for Women and Men  Satin Breeze  3.5 oz dropped to $5.30 (was $21.96) — 75% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -110,12 +110,12 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 92% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 98% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Dritz 1-1/4  Cotton Belting for Straps and H — $4.00
-2. NGK G-Power Platinum Spark Plug Fits select: — $8.20
-3. The Last Voyage of the Demeter (DVD) — $5.00
-4. Skittles Original Chewy Candy  Share Size  4 — $2.56
+1. On the Surface Letter Board with Peg Letters — $9.62
+2. Wellness Old Mother Hubbard Classic Original — $4.92
+3. EasyLiner Removable Adhesive Shelf Liner  Gr — $6.47
+4. NGK G-Power Platinum Spark Plug Fits select: — $8.20
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

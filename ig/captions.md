@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Jun 15, 2026
+# SnagDaily Instagram kit — Jun 16, 2026
 
 ## POST 1 — post_1.png
 
@@ -14,7 +14,19 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Wellness Old Mother Hubbard Classic Original Mix Biscuits Baked Dog Treats  Mini 16 Ounce Bag is just $4.92 (was $34.72)! That's 85% OFF — you save $29.80. 💰
+🏃 RUN — don't walk — NFL Green Bay Packers Metal Keychain is just $3.96 (was $50.99)! That's 92% OFF — you save $47.03. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+
+---
+
+## POST 3 — post_3.png
+
+🚨 Hot markdown alert — Wellness Old Mother Hubbard Classic Original Mix Biscuits Baked Dog Treats  Mini 16 Ounce Bag is just $4.92 (was $34.72)! That's 85% OFF — you save $29.80. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,9 +36,9 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 4 — post_4.png
 
-🚨 Hot markdown alert — EasyLiner Removable Adhesive Shelf Liner  Gray Quatrefoil 20  x 15  Roll is just $6.47 (was $37.37)! That's 82% OFF — you save $30.90. 💰
+👀 This one won't last — EasyLiner Removable Adhesive Shelf Liner  Gray Quatrefoil 20  x 15  Roll is just $6.47 (was $37.37)! That's 82% OFF — you save $30.90. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,9 +48,9 @@
 
 ---
 
-## POST 4 — post_4.png
+## POST 5 — post_5.png
 
-👀 This one won't last — NGK G-Power Platinum Spark Plug Fits select: 2008  2011 JEEP WRANGLER UNLIMITED is just $8.20 (was $44.53)! That's 81% OFF — you save $36.33. 💰
+💸 Deal of the day — NGK Iridium-IX Spark Plug is just $8.14 (was $44.06)! That's 81% OFF — you save $35.92. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,33 +60,21 @@
 
 ---
 
-## POST 5 — post_5.png
-
-💸 Deal of the day — Skittles Original Chewy Candy  Share Size  4 oz  Bag is just $2.56 (was $12.00)! That's 78% OFF — you save $9.44. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
-
----
-
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Jordan Peele 3-Movie Collection (Get Out / Us / Nope) (DVD) dropped to $5.00 (was $21.99) — 77% OFF!
+🔥 STEAL ALERT 🤯 Gabby s Dollhouse Fairylandia  Pandy Paws Flutter-riffic Fairy Ring with Display Stand dropped to $8.88 (was $34.90) — 74% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Ban Antiperspirant Deodorant Invisible Roll-On for Women and Men  Satin Breeze  3.5 oz dropped to $5.30 (was $21.96) — 75% OFF!
+🏃 RUN don't walk 🤯 Colgate Total Alcohol Free Mouthwash  Spearmint  1.0 L dropped to $5.08 (was $18.66) — 72% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -86,19 +86,19 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Badgley Mischka Diana Vegan Leather Tote Weekender Women s Travel Bag (Black) dropped to $69.99 (was $219.99) — 68% OFF!
+🚨 PRICE DROP 🤯 Alex Haley s Queen [DVD] dropped to $7.50 (was $24.00) — 68% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Sensitive Skin Stainless Steel 3/4 Hoops with Cubic Zirconia Stones for Women dropped to $5.00 (was $15.00) — 66% OFF!
+👀 Don't sleep on this 🤯 Energizer 2032 Coin Batteries (4 Pack)  CR2032 3V Lithium Batteries  Compatible with AirTag and Tile Pro Devices  Key Fobs  Watches and more dropped to $5.87 (was $11.99) — 51% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -113,9 +113,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 🔥 TODAY'S TOP DEALS — up to 98% OFF at Walmart! Which one are you grabbing? 👇
 
 1. On the Surface Letter Board with Peg Letters — $9.62
-2. Wellness Old Mother Hubbard Classic Original — $4.92
-3. EasyLiner Removable Adhesive Shelf Liner  Gr — $6.47
-4. NGK G-Power Platinum Spark Plug Fits select: — $8.20
+2. NFL Green Bay Packers Metal Keychain — $3.96
+3. Wellness Old Mother Hubbard Classic Original — $4.92
+4. EasyLiner Removable Adhesive Shelf Liner  Gr — $6.47
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

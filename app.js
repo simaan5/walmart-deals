@@ -6,6 +6,19 @@
     document.documentElement.setAttribute('data-theme',n);
     try{localStorage.setItem('sd-theme',n);}catch(e){}
   });}
+  // ── GDPR cookie consent: show the banner only if analytics is configured AND
+  // no choice yet; load analytics only on Accept. ──
+  (function(){
+    var b=document.getElementById('cookieBanner');
+    if(!b||!window.__sdAnalytics) return;
+    var choice=null; try{choice=localStorage.getItem('sd-consent');}catch(e){}
+    if(choice) return;            // already accepted/declined — stay hidden
+    b.hidden=false;
+    function decide(v){try{localStorage.setItem('sd-consent',v);}catch(e){} b.hidden=true;}
+    var a=document.getElementById('cookieAccept'), d=document.getElementById('cookieDecline');
+    if(a)a.addEventListener('click',function(){decide('granted'); if(window.__sdLoadAnalytics)window.__sdLoadAnalytics();});
+    if(d)d.addEventListener('click',function(){decide('denied');});
+  })();
   var nt=document.getElementById('navToggle'), nb=document.getElementById('navBackdrop');
   var nd=document.getElementById('navDrawer');
   function setNav(open){

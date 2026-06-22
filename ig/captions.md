@@ -1,20 +1,8 @@
-# SnagDaily Instagram kit — Jun 21, 2026
+# SnagDaily Instagram kit — Jun 22, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Eagle Claw Barrel Swivels  Black  Size 1/0  12 Pack is just $2.46 (was $23.95)! That's 89% OFF — you save $21.49. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
-
----
-
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — Peterson Manufacturing V480A Quick Mount Acrylic Reflector - Amber is just $2.18 (was $17.00)! That's 87% OFF — you save $14.82. 💰
+🔥 Today's steal — Peterson Manufacturing V480A Quick Mount Acrylic Reflector - Amber is just $2.18 (was $17.00)! That's 87% OFF — you save $14.82. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,9 +12,9 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 2 — post_2.png
 
-🚨 Hot markdown alert — The Children s Place Boys Long Sleeve Chambray Button Up Shirt  Sizes S-XXL is just $7.73 (was $36.95)! That's 79% OFF — you save $29.22. 💰
+🏃 RUN — don't walk — Reebok Delta Men s Classic Ski Pants  Sizes M-2XL is just $8.00 (was $53.33)! That's 85% OFF — you save $45.33. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,9 +24,33 @@
 
 ---
 
+## POST 3 — post_3.png
+
+🚨 Hot markdown alert — Genuine Joe  GJO0010430  Heavyweight White Plastic Forks  100 / Box  White is just $4.99 (was $28.10)! That's 82% OFF — you save $23.11. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+
+---
+
 ## POST 4 — post_4.png
 
-👀 This one won't last — Time and Tru Women s Studded Western Boots is just $9.49 (was $39.98)! That's 76% OFF — you save $30.49. 💰
+👀 This one won't last — Softsoap Moisturizing Liquid Hand Soap with New Easy Pour Spout  Milk & Honey Scent  50 fl oz Refill is just $4.70 (was $20.28)! That's 76% OFF — you save $15.58. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Time and Tru Women s Studded Western Boots is just $9.49 (was $39.98)! That's 76% OFF — you save $30.49. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,27 +60,15 @@
 
 ---
 
-## POST 5 — post_5.png
-
-💸 Deal of the day — Honey Bee Acres Cuddlesworths Bear Family – Includes 4 Miniature Flocked Animal Figures with Removable Outfits – Dolls for Kids Ages 3+ is just $9.94 (was $39.99)! That's 75% OFF — you save $30.05. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
-
----
-
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Chicago - Greatest Hits 1982-1989 - Music & Performance - CD dropped to $8.29 (was $29.99) — 72% OFF!
+🔥 STEAL ALERT 🤯 Honey Bee Acres Cuddlesworths Bear Family – Includes 4 Miniature Flocked Animal Figures with Removable Outfits – Dolls for Kids Ages 3+ dropped to $9.94 (was $39.99) — 75% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -98,24 +98,24 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 EcoTools Loofah Bath Brush  Plant-Based Loofah Material  Long Handle  White  for Adults  1 Count dropped to $6.98 (was $20.17) — 65% OFF!
+👀 Don't sleep on this 🤯 Womens Hello Kitty Chenille Patch  Cotton  Dad  Cap  Off-White  One Size Fits Most dropped to $9.97 (was $24.99) — 60% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 89% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 87% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Eagle Claw Barrel Swivels  Black  Size 1/0   — $2.46
-2. Peterson Manufacturing V480A Quick Mount Acr — $2.18
-3. The Children s Place Boys Long Sleeve Chambr — $7.73
-4. Time and Tru Women s Studded Western Boots — $9.49
+1. Peterson Manufacturing V480A Quick Mount Acr — $2.18
+2. Reebok Delta Men s Classic Ski Pants  Sizes  — $8.00
+3. Genuine Joe  GJO0010430  Heavyweight White P — $4.99
+4. Softsoap Moisturizing Liquid Hand Soap with  — $4.70
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

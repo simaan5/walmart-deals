@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Jun 24, 2026
+# SnagDaily Instagram kit — Jun 25, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Dainty Home 2-Pack Blackout Grommet Curtain Panels  Shimmer Textured  38 x84 is just $14.65 (was $99.99)! That's 85% OFF — you save $85.34. 💰
+🔥 Today's steal — Easton E610CBP Baseball Catcher s Backpack | Black | N/A is just $124.99 (was $9,999.00)! That's 98% OFF — you save $9,874.01. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -26,19 +26,19 @@
 
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — Eagle Claw Micro-Leader with Crane Swivel Nylon Steel Abrasion-resistant  8  3.00 inch 0.2 lbs is just $2.17 (was $8.25)! That's 73% OFF — you save $6.08. 💰
+🚨 Hot markdown alert — Purina Beneful Dog Food Freshly Prepared Meals Wet Dog Food with Turkey  Sweet Potatoes  and Wild Rice  10 oz. is just $2.48 (was $13.47)! That's 81% OFF — you save $10.99. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
 ## POST 4 — post_4.png
 
-👀 This one won't last — ARM & HAMMER Whitening Toothpaste Plus Therabreath Breath Fresheners  Invigorating Icy Mint  5.5 oz is just $3.97 (was $11.79)! That's 66% OFF — you save $7.82. 💰
+👀 This one won't last — Bodycology Fragrance Body Mist  Blue Denim  8 fl oz is just $4.97 (was $15.26)! That's 67% OFF — you save $10.29. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -50,7 +50,7 @@
 
 ## POST 5 — post_5.png
 
-💸 Deal of the day — Pop Solo Glow  Bluetooth Karaoke Microphone & Speaker W/ Retractable Smart Phone Holder & LED Lights is just $17.16 (was $45.99)! That's 62% OFF — you save $28.83. 💰
+💸 Deal of the day — August Rush (DVD) is just $6.61 (was $19.99)! That's 66% OFF — you save $13.38. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -62,19 +62,19 @@
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Kaytee Critter-Trail Fun-nel Loop-D-Loop Accessory Kit Small Animal Habitat Tubes dropped to $11.28 (was $30.18) — 62% OFF!
+🔥 STEAL ALERT 🤯 MegaChef 1.8Lt. Glass and Stainless Steel Electric Tea Kettle dropped to $21.99 (was $54.90) — 59% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Brickcraft Grinch Advent Calendar (277-Piece Set)  Holiday Building Kit Featuring Grinch and Max  Christmas Countdown Gift for Kids Ages 8+ dropped to $24.98 (was $58.99) — 57% OFF!
+🏃 RUN don't walk 🤯 My First Bananagrams dropped to $14.99 (was $28.88) — 48% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -86,7 +86,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Auburn Tigers Solid Blue Necktie - Donegal Bay - Unisex - One Size dropped to $28.85 (was $49.95) — 42% OFF!
+🚨 PRICE DROP 🤯 ActionHeat Women s 5V Battery Heated Long Puffer Jacket W/ Fur Hood - Indigo - XS dropped to $119.99 (was $212.99) — 43% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -110,12 +110,12 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 85% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 98% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Dainty Home 2-Pack Blackout Grommet Curtain  — $14.65
+1. Easton E610CBP Baseball Catcher s Backpack | — $124.99
 2. Peterson Manufacturing V480A Quick Mount Acr — $2.18
-3. Eagle Claw Micro-Leader with Crane Swivel Ny — $2.17
-4. ARM & HAMMER Whitening Toothpaste Plus Thera — $3.97
+3. Purina Beneful Dog Food Freshly Prepared Mea — $2.48
+4. Bodycology Fragrance Body Mist  Blue Denim   — $4.97
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

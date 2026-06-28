@@ -1,8 +1,8 @@
-# SnagDaily Instagram kit — Jun 27, 2026
+# SnagDaily Instagram kit — Jun 28, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Eagle Claw Lazer Sharp Kahle Hook  Bronze  Size 4  5 Pack is just $3.00 (was $18.79)! That's 84% OFF — you save $15.79. 💰
+🔥 Today's steal — Cylinder Lock  1-7/8 in. Tailpiece  Fits Weiser®  Kwikset® and Weslock is just $3.03 (was $29.62)! That's 89% OFF — you save $26.59. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -14,31 +14,19 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — MegaChef 8 Inch Round Preseasoned Cast Iron Frying Pan in Black is just $13.79 (was $49.00)! That's 71% OFF — you save $35.21. 💰
+🏃 RUN — don't walk — Believe by Brilliance Women s Adult Female Fine Silver Plated Heart Locket with CZ Pendant Necklace is just $3.00 (was $14.94)! That's 79% OFF — you save $11.94. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — NTRO PRP KTN CK 24/2.64 OZ is just $2.67 (was $8.21)! That's 67% OFF — you save $5.54. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
-
----
-
-## POST 4 — post_4.png
-
-👀 This one won't last — Raybestos WC37574 Ford Ranger 1987 - 1997 Drum Brake Wheel Cylinder is just $8.77 (was $26.64)! That's 67% OFF — you save $17.87. 💰
+🚨 Hot markdown alert — Walker Exhaust 31377 Exhaust Pipe Flange Gasket Fits select: 2003-2021 HONDA PILOT  1995-2017 HONDA ODYSSEY is just $5.89 (was $24.95)! That's 76% OFF — you save $19.06. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,33 +36,45 @@
 
 ---
 
-## POST 5 — post_5.png
+## POST 4 — post_4.png
 
-💸 Deal of the day — Plus size mini diamond net spandex pantyhose 9030Q-RED is just $5.99 (was $11.35)! That's 47% OFF — you save $5.36. 💰
+👀 This one won't last — Mr. Bubble Scientific & Terrific Bath Potion  Original Bubblegum Scent  1.76 oz. is just $3.79 (was $16.00)! That's 76% OFF — you save $12.21. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Blue Dog Bakery More Crunch Assorted Flavors Biscuit Natural Treats for Dogs  Large  1 lb. 2 oz. is just $3.52 (was $13.00)! That's 72% OFF — you save $9.48. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Junior Learning: Rainbow Phonics Blox: Decoding - Phase 3 - Build & Learn  30 Activity Cards  Color Coded Blocks  Reading Development  Kids Ages 5+ dropped to $16.25 (was $30.24) — 46% OFF!
+🔥 STEAL ALERT 🤯 Modway Bixby Particleboard and MDF Bookshelves in Walnut/White (Set of 2) dropped to $455.85 (was $1,325.00) — 65% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Frank Sinatra - Sinatra at the Sands - Music & Performance - Vinyl dropped to $22.79 (was $41.99) — 45% OFF!
+🏃 RUN don't walk 🤯 EA Sports Madden NFL 26  PlayStation 5 dropped to $25.00 (was $69.00) — 63% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -86,36 +86,36 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Bath Bliss Spa Foam Bath Pillow  White dropped to $7.98 (was $11.99) — 33% OFF!
+🚨 PRICE DROP 🤯 Giro Trixter Bicycle Gloves  Midnight Retro  size Small dropped to $8.00 (was $19.95) — 59% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Men s Scott Hawaii Holo 4229 Rubber Flip Flop dropped to $20.98 (was $29.00) — 27% OFF!
+👀 Don't sleep on this 🤯 Hanes Womens Hanes Women s Scrubs Underscrub Scrub Top  Comfort Fit  Long Sleeve  Sizes S-2XL dropped to $9.00 (was $18.98) — 52% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 84% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 89% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Eagle Claw Lazer Sharp Kahle Hook  Bronze  S — $3.00
-2. MegaChef 8 Inch Round Preseasoned Cast Iron  — $13.79
-3. NTRO PRP KTN CK 24/2.64 OZ — $2.67
-4. Raybestos WC37574 Ford Ranger 1987 - 1997 Dr — $8.77
+1. Cylinder Lock  1-7/8 in. Tailpiece  Fits Wei — $3.03
+2. Believe by Brilliance Women s Adult Female F — $3.00
+3. Walker Exhaust 31377 Exhaust Pipe Flange Gas — $5.89
+4. Mr. Bubble Scientific & Terrific Bath Potion — $3.79
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

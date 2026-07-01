@@ -1,20 +1,8 @@
-# SnagDaily Instagram kit — Jun 30, 2026
+# SnagDaily Instagram kit — Jul 01, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Nanette Lepore Flutter Sleeve Midi Dress with Border Print is just $19.99 (was $148.00)! That's 86% OFF — you save $128.01. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
-
----
-
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — Dorman 095-015.1 Aluminum Drain Plug Gasket Fits 1/2Do 9/16 M14 Compatible with Select Models Fits select: 1997-2023 HONDA CR-V  1984-2023 HONDA CIVIC is just $2.93 (was $18.95)! That's 84% OFF — you save $16.02. 💰
+🔥 Today's steal — Dorman 095-015.1 Aluminum Drain Plug Gasket Fits 1/2Do 9/16 M14 Compatible with Select Models Fits select: 1997-2023 HONDA CR-V  1984-2023 HONDA CIVIC is just $2.93 (was $18.95)! That's 84% OFF — you save $16.02. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,9 +12,9 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 2 — post_2.png
 
-🚨 Hot markdown alert — 1Gallon Metal Paint Grid is just $2.97 (was $17.07)! That's 82% OFF — you save $14.10. 💰
+🏃 RUN — don't walk — 1Gallon Metal Paint Grid is just $2.97 (was $17.07)! That's 82% OFF — you save $14.10. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,9 +24,9 @@
 
 ---
 
-## POST 4 — post_4.png
+## POST 3 — post_3.png
 
-👀 This one won't last — Tom s of Maine Wicked Fresh! Alcohol-Free Natural Mouthwash  Cool Mountain Mint  16 oz. is just $4.84 (was $23.54)! That's 79% OFF — you save $18.70. 💰
+🚨 Hot markdown alert — W7 Romanced Neutrals in Love Eye Colour Palette 14 Shades Suitable for All Skin Types is just $2.50 (was $11.97)! That's 79% OFF — you save $9.47. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,33 +36,45 @@
 
 ---
 
-## POST 5 — post_5.png
+## POST 4 — post_4.png
 
-💸 Deal of the day — Meow Mix 6.3 Ounce Gravy Burst Chicken Cat Treat is just $5.98 (was $22.88)! That's 73% OFF — you save $16.90. 💰
+👀 This one won't last — Scary Stories to Tell in the Dark (DVD) is just $5.87 (was $19.00)! That's 69% OFF — you save $13.13. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Funko Bitty POP! Ride: Back to the Future - Marty McFly and Time Machine  Collectible Vinyl Figure is just $5.86 (was $16.95)! That's 65% OFF — you save $11.09. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Sony 75” class BRAVIA 5 Mini LED 4K HDR Smart Google TV K-75XR50  2025 Model dropped to $548.00 (was $1,999.99) — 72% OFF!
+🔥 STEAL ALERT 🤯 Multipet Lamb Chop with Birthday Hat Dog Toy  Blue  10.5 dropped to $7.60 (was $20.18) — 62% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 KFFKFF Clear Plastic Table Cover  16 x 32 Inch  1.5 mm Thick PVC Protector  Rectangular Desk Mat  Waterproof and Easy-to-Clean Tablecloth for Office  Dining Table  Dresser  or Nightstand dropped to $7.99 (was $26.95) — 70% OFF!
+🏃 RUN don't walk 🤯 Remington® 42 gal Plastic Storage Bins with Lids  Latching Totes  Heavy Duty Containers dropped to $54.96 (was $115.66) — 52% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -86,19 +86,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Fisher-Price Big Little Feelings Bedtime Routine Kit  Set of Toys & Tips for Toddlers & Kids dropped to $19.63 (was $48.49) — 59% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 4 — reel_4.png
-
-👀 Don't sleep on this 🤯 Time and Tru Interchangeable Silvertone Charm Necklace  6 Pieces dropped to $3.00 (was $7.00) — 57% OFF!
+🚨 PRICE DROP 🤯 Broadus Collection Scarf by Shante & Snoop Dogg for All Ages  60  x 15  Headwrap  Golden Tropics dropped to $5.97 (was $11.99) — 50% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -108,14 +96,26 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
+## REEL 4 — reel_4.png
+
+👀 Don't sleep on this 🤯 Hudson Baby Plush Animal Face Bathrobe  Triceratops  0-9 Months dropped to $12.03 (was $23.99) — 49% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+
+---
+
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 86% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 84% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Nanette Lepore Flutter Sleeve Midi Dress wit — $19.99
-2. Dorman 095-015.1 Aluminum Drain Plug Gasket  — $2.93
-3. 1Gallon Metal Paint Grid — $2.97
-4. Tom s of Maine Wicked Fresh! Alcohol-Free Na — $4.84
+1. Dorman 095-015.1 Aluminum Drain Plug Gasket  — $2.93
+2. 1Gallon Metal Paint Grid — $2.97
+3. W7 Romanced Neutrals in Love Eye Colour Pale — $2.50
+4. Scary Stories to Tell in the Dark (DVD) — $5.87
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

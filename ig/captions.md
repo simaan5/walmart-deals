@@ -1,32 +1,8 @@
-# SnagDaily Instagram kit — Jul 01, 2026
+# SnagDaily Instagram kit — Jul 02, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Dorman 095-015.1 Aluminum Drain Plug Gasket Fits 1/2Do 9/16 M14 Compatible with Select Models Fits select: 1997-2023 HONDA CR-V  1984-2023 HONDA CIVIC is just $2.93 (was $18.95)! That's 84% OFF — you save $16.02. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
-
----
-
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — 1Gallon Metal Paint Grid is just $2.97 (was $17.07)! That's 82% OFF — you save $14.10. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — W7 Romanced Neutrals in Love Eye Colour Palette 14 Shades Suitable for All Skin Types is just $2.50 (was $11.97)! That's 79% OFF — you save $9.47. 💰
+🔥 Today's steal — W7 Romanced Neutrals in Love Eye Colour Palette 14 Shades Suitable for All Skin Types is just $2.50 (was $11.97)! That's 79% OFF — you save $9.47. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,9 +12,9 @@
 
 ---
 
-## POST 4 — post_4.png
+## POST 2 — post_2.png
 
-👀 This one won't last — Scary Stories to Tell in the Dark (DVD) is just $5.87 (was $19.00)! That's 69% OFF — you save $13.13. 💰
+🏃 RUN — don't walk — Scary Stories to Tell in the Dark (DVD) is just $5.87 (was $19.00)! That's 69% OFF — you save $13.13. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,9 +24,9 @@
 
 ---
 
-## POST 5 — post_5.png
+## POST 3 — post_3.png
 
-💸 Deal of the day — Funko Bitty POP! Ride: Back to the Future - Marty McFly and Time Machine  Collectible Vinyl Figure is just $5.86 (was $16.95)! That's 65% OFF — you save $11.09. 💰
+🚨 Hot markdown alert — Funko Bitty POP! Ride: Back to the Future - Marty McFly and Time Machine  Collectible Vinyl Figure is just $5.86 (was $16.95)! That's 65% OFF — you save $11.09. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -60,9 +36,33 @@
 
 ---
 
+## POST 4 — post_4.png
+
+👀 This one won't last — FEL-PRO VS 50247 R Valve Cover Gasket Set is just $12.53 (was $35.14)! That's 64% OFF — you save $22.61. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Mechanix Wear - Material 4X Mpact Glove  Tan  Size Large is just $16.13 (was $39.89)! That's 59% OFF — you save $23.76. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+
+---
+
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Multipet Lamb Chop with Birthday Hat Dog Toy  Blue  10.5 dropped to $7.60 (was $20.18) — 62% OFF!
+🔥 STEAL ALERT 🤯 Pounce + Fetch 3 Gallon Plastic Dry Food Container with Scooper dropped to $9.80 (was $19.75) — 50% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -74,19 +74,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Remington® 42 gal Plastic Storage Bins with Lids  Latching Totes  Heavy Duty Containers dropped to $54.96 (was $115.66) — 52% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 3 — reel_3.png
-
-🚨 PRICE DROP 🤯 Broadus Collection Scarf by Shante & Snoop Dogg for All Ages  60  x 15  Headwrap  Golden Tropics dropped to $5.97 (was $11.99) — 50% OFF!
+🏃 RUN don't walk 🤯 Broadus Collection Scarf by Shante & Snoop Dogg for All Ages  60  x 15  Headwrap  Golden Tropics dropped to $5.97 (was $11.99) — 50% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -96,9 +84,21 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
+## REEL 3 — reel_3.png
+
+🚨 PRICE DROP 🤯 Bath Bliss Slim 1.3 gal Iron Step Pedal Bathroom Wastebasket with Soft Close Lid  Black dropped to $22.09 (was $43.98) — 49% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+
+---
+
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Hudson Baby Plush Animal Face Bathrobe  Triceratops  0-9 Months dropped to $12.03 (was $23.99) — 49% OFF!
+👀 Don't sleep on this 🤯 Auburn Elite Chair dropped to $29.99 (was $49.54) — 39% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -110,12 +110,12 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 84% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 79% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Dorman 095-015.1 Aluminum Drain Plug Gasket  — $2.93
-2. 1Gallon Metal Paint Grid — $2.97
-3. W7 Romanced Neutrals in Love Eye Colour Pale — $2.50
-4. Scary Stories to Tell in the Dark (DVD) — $5.87
+1. W7 Romanced Neutrals in Love Eye Colour Pale — $2.50
+2. Scary Stories to Tell in the Dark (DVD) — $5.87
+3. Funko Bitty POP! Ride: Back to the Future -  — $5.86
+4. FEL-PRO VS 50247 R Valve Cover Gasket Set — $12.53
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

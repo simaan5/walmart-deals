@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Jul 03, 2026
+# SnagDaily Instagram kit — Jul 04, 2026
 
 ## POST 1 — post_1.png
 
@@ -14,7 +14,19 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Pork Chomps Premium Rawhide-Free Baked Pork Skin Knots Dog Chews  7 Inch  8 Count is just $16.20 (was $43.71)! That's 62% OFF — you save $27.51. 💰
+🏃 RUN — don't walk — Gamakatsu Worm Offset RB1/0 NSB 6pk is just $2.97 (was $10.52)! That's 71% OFF — you save $7.55. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+
+---
+
+## POST 3 — post_3.png
+
+🚨 Hot markdown alert — Pork Chomps Premium Rawhide-Free Baked Pork Skin Knots Dog Chews  7 Inch  8 Count is just $16.20 (was $43.71)! That's 62% OFF — you save $27.51. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,27 +36,15 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 4 — post_4.png
 
-🚨 Hot markdown alert — Lego Ninjago Movie  The [DVD] is just $5.99 (was $14.49)! That's 58% OFF — you save $8.50. 💰
+👀 This one won't last — Lego Ninjago Movie  The [DVD] is just $5.99 (was $14.49)! That's 58% OFF — you save $8.50. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
 #walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
-
----
-
-## POST 4 — post_4.png
-
-👀 This one won't last — Bobby Garland Baby Shad Crappie Bait 2  Electric Chicken 18 Count is just $4.76 (was $11.47)! That's 58% OFF — you save $6.71. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -98,7 +98,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 G-Shock by Casio Rubber Strap Band  Gray  DW9052-1V dropped to $59.32 (was $74.95) — 20% OFF!
+👀 Don't sleep on this 🤯 The Penis Book  (Paperback) dropped to $15.48 (was $19.76) — 21% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -113,9 +113,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 🔥 TODAY'S TOP DEALS — up to 77% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Dorman 47107 Windshield Washer Reservoir Cap — $5.55
-2. Pork Chomps Premium Rawhide-Free Baked Pork  — $16.20
-3. Lego Ninjago Movie  The [DVD] — $5.99
-4. Bobby Garland Baby Shad Crappie Bait 2  Elec — $4.76
+2. Gamakatsu Worm Offset RB1/0 NSB 6pk — $2.97
+3. Pork Chomps Premium Rawhide-Free Baked Pork  — $16.20
+4. Lego Ninjago Movie  The [DVD] — $5.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

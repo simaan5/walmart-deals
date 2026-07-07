@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Jul 06, 2026
+# SnagDaily Instagram kit — Jul 07, 2026
 
 ## POST 1 — post_1.png
 
@@ -14,19 +14,7 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Prinx HiSeason 4S HS1 All Season 245/45R19 102V XL SUV/Crossover Tire is just $100.08 (was $1,000.00)! That's 90% OFF — you save $899.92. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — Eagle Claw Tin Ball Head Jig - Double eye - 5 pack - 1/8 oz - Chartreuse is just $6.43 (was $47.35)! That's 86% OFF — you save $40.92. 💰
+🏃 RUN — don't walk — Eagle Claw Tin Ball Head Jig - Double eye - 5 pack - 1/8 oz - Chartreuse is just $6.43 (was $47.35)! That's 86% OFF — you save $40.92. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,21 +24,21 @@
 
 ---
 
-## POST 4 — post_4.png
+## POST 3 — post_3.png
 
-👀 This one won't last — KFFKFF Manual Pull Down Projector Screen  100 inch 16:9  4K 1080 HD  Auto-Locking  Portable Screen for Home  Office  and Family Theater is just $83.18 (was $367.99)! That's 77% OFF — you save $284.81. 💰
+🚨 Hot markdown alert — Believe by Brilliance Women s Fine Silver Plated Earrings with Genuine CZ Stones  Bow Motif  Female  1 Pair is just $3.50 (was $14.94)! That's 76% OFF — you save $11.44. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
-## POST 5 — post_5.png
+## POST 4 — post_4.png
 
-💸 Deal of the day — Teenage Mutant Ninja Turtles Kids 2 Piece Grey Reversible Comforter and Pillowcase Bedding Set  Twin/Full is just $31.72 (was $139.99)! That's 77% OFF — you save $108.27. 💰
+👀 This one won't last — Buttercream Frosting Scented Wax Melts  ScentSationals  2.5 oz is just $2.22 (was $7.99)! That's 72% OFF — you save $5.77. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -60,21 +48,21 @@
 
 ---
 
-## REEL 1 — reel_1.png
+## POST 5 — post_5.png
 
-🔥 STEAL ALERT 🤯 Believe by Brilliance Women s Fine Silver Plated Earrings with Genuine CZ Stones  Bow Motif  Female  1 Pair dropped to $3.50 (was $14.94) — 76% OFF!
+💸 Deal of the day — Icelandic+ Soft & Chewy Bites - Chicken  Blackberry & Kelp - 1.8oz Cat Treats  70% Meat & Fruit  Air-Dried  Limited Ingredients  Pet Snack  Grain Free is just $5.84 (was $18.99)! That's 69% OFF — you save $13.15. 💰
 
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
-## REEL 2 — reel_2.png
+## REEL 1 — reel_1.png
 
-🏃 RUN don't walk 🤯 Elf Boys  Beanie Hat and Gloves Set  2-Piece dropped to $2.99 (was $11.98) — 75% OFF!
+🔥 STEAL ALERT 🤯 Dr. Seuss Women s Holiday Scrub Top with Short Sleeves  Sizes S-3XL dropped to $3.50 (was $11.14) — 68% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -84,21 +72,33 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 3 — reel_3.png
+## REEL 2 — reel_2.png
 
-🚨 PRICE DROP 🤯 Burt s Bees For Pets Porcupine Bristle Brush for Puppies and Small Dog Flex-Head Grooming Brush dropped to $7.98 (was $25.99) — 69% OFF!
+🏃 RUN don't walk 🤯 PGA Tour 2K25  PlayStation 5 dropped to $10.80 (was $33.00) — 67% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 3 — reel_3.png
+
+🚨 PRICE DROP 🤯 MOOG K90553 Stabilizer Bar Bushing Kit dropped to $8.49 (was $24.95) — 66% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 L.A. COLORS Long Lasting Chip Resistant Metal Nail Polish  Molten  0.44 fl oz dropped to $2.24 (was $6.71) — 66% OFF!
+👀 Don't sleep on this 🤯 Dippity-do Girls with Curls De-Frizz Leave-In Detangling Conditioner  236 ml/8.0 fl oz dropped to $6.84 (was $17.94) — 61% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -113,9 +113,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 🔥 TODAY'S TOP DEALS — up to 99% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Doll Cradle with Bedding and Free Personaliz — $45.09
-2. Prinx HiSeason 4S HS1 All Season 245/45R19 1 — $100.08
-3. Eagle Claw Tin Ball Head Jig - Double eye -  — $6.43
-4. KFFKFF Manual Pull Down Projector Screen  10 — $83.18
+2. Eagle Claw Tin Ball Head Jig - Double eye -  — $6.43
+3. Believe by Brilliance Women s Fine Silver Pl — $3.50
+4. Buttercream Frosting Scented Wax Melts  Scen — $2.22
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

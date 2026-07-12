@@ -1,8 +1,20 @@
-# SnagDaily Instagram kit — Jul 11, 2026
+# SnagDaily Instagram kit — Jul 12, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Minwax 710330000 Water-Based Oil-Modified Polyurethane  Warm Satin  Clear  1 Gallon  (1 Piece  1 Pack) is just $49.95 (was $125.98)! That's 60% OFF — you save $76.03. 💰
+🔥 Today's steal — French Toast Girls School Uniform Adjustable Waist 2-Tab Scooter  Sizes 4-20 & Plus is just $3.51 (was $17.50)! That's 79% OFF — you save $13.99. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+
+---
+
+## POST 2 — post_2.png
+
+🏃 RUN — don't walk — Post-it Dispenser Pop-up Notes  3 in x 3 in  Alternating Pastel Colors  12 Pads is just $15.99 (was $72.69)! That's 78% OFF — you save $56.70. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -12,110 +24,98 @@
 
 ---
 
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — POP Television: The Office S9 - Kevin is just $7.44 (was $14.99)! That's 50% OFF — you save $7.55. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
-
----
-
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — International Concepts Ava Unfinished Wood Arm Chair is just $171.59 (was $336.47)! That's 49% OFF — you save $164.88. 💰
+🚨 Hot markdown alert — Bodycology Hawaiian Beach Exfoliating Sugar Scrub  10 fl oz is just $4.97 (was $22.00)! That's 77% OFF — you save $17.03. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
 ## POST 4 — post_4.png
 
-👀 This one won't last — Ironman All Country AT-X All Terrain 265/70R18 116T Light Truck Tire is just $145.08 (was $275.95)! That's 47% OFF — you save $130.87. 💰
+👀 This one won't last — Borderline (DVD) Magnolia Home Entertainment  Thriller is just $5.00 (was $21.45)! That's 76% OFF — you save $16.45. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
 ## POST 5 — post_5.png
 
-💸 Deal of the day — Kasugai Gummy  Strawberry  4.8 Oz is just $3.98 (was $7.55)! That's 47% OFF — you save $3.57. 💰
+💸 Deal of the day — FIFA World Cup 2026 Clutch Eagle Mascot Plush and Crinkle Dog Toy is just $2.49 (was $9.97)! That's 75% OFF — you save $7.48. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Pinkpantheress - Fancy Some More? - Music & Performance - CD dropped to $11.47 (was $19.49) — 41% OFF!
+🔥 STEAL ALERT 🤯 Thyme & Table Purple Palm Print Neoprene Wine Bag dropped to $8.39 (was $32.48) — 74% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Drybar Liquid Glass High-Gloss Smoothing Blowout Frizz Control Hair Cream  3.38 fl oz dropped to $23.80 (was $32.00) — 25% OFF!
+🏃 RUN don't walk 🤯 Madden NYC Women s Gold Tone Western Stone Chandelier Earrings dropped to $2.34 (was $9.00) — 74% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 3M Pro Grade Precision Sanding Block  Drywall Sponge  2.5 in x 4.5 in x 1 in  80 Grit  Coarse  1 Sponge dropped to $6.27 (was $14.60) — 57% OFF!
+🚨 PRICE DROP 🤯 Dorman 87017 Lead-Free Rosin Core Solder dropped to $10.55 (was $37.95) — 72% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 theory11 The Beatles Yellow Submarine Playing Cards dropped to $12.92 (was $24.36) — 47% OFF!
+👀 Don't sleep on this 🤯 Gallery Seven Tri-Strap Slide Sandals for Women dropped to $39.99 (was $89.99) — 55% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 60% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 79% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Minwax 710330000 Water-Based Oil-Modified Po — $49.95
-2. POP Television: The Office S9 - Kevin — $7.44
-3. International Concepts Ava Unfinished Wood A — $171.59
-4. Ironman All Country AT-X All Terrain 265/70R — $145.08
+1. French Toast Girls School Uniform Adjustable — $3.51
+2. Post-it Dispenser Pop-up Notes  3 in x 3 in  — $15.99
+3. Bodycology Hawaiian Beach Exfoliating Sugar  — $4.97
+4. Borderline (DVD) Magnolia Home Entertainment — $5.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

@@ -1,20 +1,8 @@
-# SnagDaily Instagram kit — Jul 12, 2026
+# SnagDaily Instagram kit — Jul 13, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — French Toast Girls School Uniform Adjustable Waist 2-Tab Scooter  Sizes 4-20 & Plus is just $3.51 (was $17.50)! That's 79% OFF — you save $13.99. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
-
----
-
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — Post-it Dispenser Pop-up Notes  3 in x 3 in  Alternating Pastel Colors  12 Pads is just $15.99 (was $72.69)! That's 78% OFF — you save $56.70. 💰
+🔥 Today's steal — H&H Single Spin Spinner Bait  Chartreuse Blue  3/8 oz  HHSS110-38 is just $3.95 (was $20.37)! That's 80% OFF — you save $16.42. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,9 +12,33 @@
 
 ---
 
+## POST 2 — post_2.png
+
+🏃 RUN — don't walk — French Toast Girls School Uniform Adjustable Waist 2-Tab Scooter  Sizes 4-20 & Plus is just $3.51 (was $17.50)! That's 79% OFF — you save $13.99. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+
+---
+
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — Bodycology Hawaiian Beach Exfoliating Sugar Scrub  10 fl oz is just $4.97 (was $22.00)! That's 77% OFF — you save $17.03. 💰
+🚨 Hot markdown alert — Continental ContiProContact All Season 205/70R16 96H Passenger Tire is just $128.87 (was $620.14)! That's 79% OFF — you save $491.27. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+
+---
+
+## POST 4 — post_4.png
+
+👀 This one won't last — Bodycology Hawaiian Beach Exfoliating Sugar Scrub  10 fl oz is just $4.97 (was $22.00)! That's 77% OFF — you save $17.03. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,27 +48,15 @@
 
 ---
 
-## POST 4 — post_4.png
+## POST 5 — post_5.png
 
-👀 This one won't last — Borderline (DVD) Magnolia Home Entertainment  Thriller is just $5.00 (was $21.45)! That's 76% OFF — you save $16.45. 💰
+💸 Deal of the day — Borderline (DVD) Magnolia Home Entertainment  Thriller is just $5.00 (was $21.45)! That's 76% OFF — you save $16.45. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
 #walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
-
----
-
-## POST 5 — post_5.png
-
-💸 Deal of the day — FIFA World Cup 2026 Clutch Eagle Mascot Plush and Crinkle Dog Toy is just $2.49 (was $9.97)! That's 75% OFF — you save $7.48. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -86,19 +86,19 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Dorman 87017 Lead-Free Rosin Core Solder dropped to $10.55 (was $37.95) — 72% OFF!
+🚨 PRICE DROP 🤯 Canine Carry Outs Steak Bites Beef Flavor Dog Treats  22.5oz Bag dropped to $4.98 (was $15.99) — 68% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Gallery Seven Tri-Strap Slide Sandals for Women dropped to $39.99 (was $89.99) — 55% OFF!
+👀 Don't sleep on this 🤯 large fimo elastic ponytail hair flower plumeria yellow dropped to $6.04 (was $17.99) — 66% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -110,12 +110,12 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 79% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 80% OFF at Walmart! Which one are you grabbing? 👇
 
-1. French Toast Girls School Uniform Adjustable — $3.51
-2. Post-it Dispenser Pop-up Notes  3 in x 3 in  — $15.99
-3. Bodycology Hawaiian Beach Exfoliating Sugar  — $4.97
-4. Borderline (DVD) Magnolia Home Entertainment — $5.00
+1. H&H Single Spin Spinner Bait  Chartreuse Blu — $3.95
+2. French Toast Girls School Uniform Adjustable — $3.51
+3. Continental ContiProContact All Season 205/7 — $128.87
+4. Bodycology Hawaiian Beach Exfoliating Sugar  — $4.97
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

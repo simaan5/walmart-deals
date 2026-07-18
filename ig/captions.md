@@ -1,20 +1,8 @@
-# SnagDaily Instagram kit — Jul 17, 2026
+# SnagDaily Instagram kit — Jul 18, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Eklind Tool Company PRECISION SCREWDRIVER SET8 PC BALL-HEX .050-5/32 is just $30.12 (was $191.37)! That's 84% OFF — you save $161.25. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
-
----
-
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — Zeetex ZT3000 All Season 175/70R13 82H Passenger Tire is just $41.52 (was $190.56)! That's 78% OFF — you save $149.04. 💰
+🔥 Today's steal — Performance Tool W80590 Oil Pressure Switch Socket  1/2 in. Drive  Fits 1 In. and 1-1/16 In. Oil Pressure Switches  Steel  Black is just $7.62 (was $25.99)! That's 70% OFF — you save $18.37. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,21 +12,33 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 2 — post_2.png
 
-🚨 Hot markdown alert — Nearly Natural 6.5in. Tuscan Ceramic Green Scroll Pitcher Vase is just $23.85 (was $80.07)! That's 70% OFF — you save $56.22. 💰
+🏃 RUN — don't walk — Icelandic+ Mini Combo Bites: Cod & Herring - 1.7oz Bag - Cat Treats  .25  Crunchy Bites  2 Ingredient Natural Pet Snacks  No Fillers  Wild-Caught Fish is just $5.99 (was $16.99)! That's 64% OFF — you save $11.00. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+
+---
+
+## POST 3 — post_3.png
+
+🚨 Hot markdown alert — K Tool International Wrench 18mm Combination 12 Point 15 Degree is just $5.31 (was $14.28)! That's 62% OFF — you save $8.97. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
 ## POST 4 — post_4.png
 
-👀 This one won't last — Little Monk Home Decor Tabletop Ornament is just $31.49 (was $92.40)! That's 65% OFF — you save $60.91. 💰
+👀 This one won't last — Zen as F*ck Journals: Find Your F*cking Happy: A Journal to Help Pave the Way for Positive Sh*t Ahead (Paperback) is just $9.29 (was $22.56)! That's 58% OFF — you save $13.27. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -50,19 +50,19 @@
 
 ## POST 5 — post_5.png
 
-💸 Deal of the day — Icelandic+ Mini Combo Bites: Cod & Herring - 1.7oz Bag - Cat Treats  .25  Crunchy Bites  2 Ingredient Natural Pet Snacks  No Fillers  Wild-Caught Fish is just $5.99 (was $16.99)! That's 64% OFF — you save $11.00. 💰
+💸 Deal of the day — International Concepts Solid Wood Spencer End Table  Unfinished is just $162.89 (was $331.99)! That's 50% OFF — you save $169.10. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 hand2mind Express Your Feelings Rainbow Sensory Fidget Tubes  Calm Down Corner Essentials  Visual Sensory Toys For Sensory Play dropped to $14.69 (was $36.97) — 60% OFF!
+🔥 STEAL ALERT 🤯 Fuggler Bouquets 2 x 9 Inch  1 x 3.5 Inch Fugglers (Rabid Rabbit  Sir Nobbynuts  Nobbybits) by ZURU dropped to $24.97 (was $49.11) — 49% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -86,7 +86,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 FL State Elite Chair dropped to $24.99 (was $36.53) — 31% OFF!
+🚨 PRICE DROP 🤯 Hanes Just My Size Women’s Cotton Jersey Tank  Shirttail Hem (Plus ) Briny Pink 3X dropped to $9.00 (was $13.00) — 30% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -98,7 +98,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Energizer Rechargeable C Batteries (2 Pack)  C Cell Batteries dropped to $9.21 (was $12.90) — 28% OFF!
+👀 Don't sleep on this 🤯 Timex Men s Expedition Acadia 40mm Watch – Black Case Black Dial with Black & Brown Leather & Fabric Strap dropped to $41.74 (was $58.00) — 28% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -110,12 +110,12 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 84% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 70% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Eklind Tool Company PRECISION SCREWDRIVER SE — $30.12
-2. Zeetex ZT3000 All Season 175/70R13 82H Passe — $41.52
-3. Nearly Natural 6.5in. Tuscan Ceramic Green S — $23.85
-4. Little Monk Home Decor Tabletop Ornament — $31.49
+1. Performance Tool W80590 Oil Pressure Switch  — $7.62
+2. Icelandic+ Mini Combo Bites: Cod & Herring - — $5.99
+3. K Tool International Wrench 18mm Combination — $5.31
+4. Zen as F*ck Journals: Find Your F*cking Happ — $9.29
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

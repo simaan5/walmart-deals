@@ -1,8 +1,8 @@
-# SnagDaily Instagram kit — Jul 18, 2026
+# SnagDaily Instagram kit — Jul 19, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Performance Tool W80590 Oil Pressure Switch Socket  1/2 in. Drive  Fits 1 In. and 1-1/16 In. Oil Pressure Switches  Steel  Black is just $7.62 (was $25.99)! That's 70% OFF — you save $18.37. 💰
+🔥 Today's steal — Prinx HiSeason 4S HS1 All Season 235/55R18 104V XL SUV/Crossover Tire is just $102.07 (was $1,000.00)! That's 89% OFF — you save $897.93. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -14,31 +14,7 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Icelandic+ Mini Combo Bites: Cod & Herring - 1.7oz Bag - Cat Treats  .25  Crunchy Bites  2 Ingredient Natural Pet Snacks  No Fillers  Wild-Caught Fish is just $5.99 (was $16.99)! That's 64% OFF — you save $11.00. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — K Tool International Wrench 18mm Combination 12 Point 15 Degree is just $5.31 (was $14.28)! That's 62% OFF — you save $8.97. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
-
----
-
-## POST 4 — post_4.png
-
-👀 This one won't last — Zen as F*ck Journals: Find Your F*cking Happy: A Journal to Help Pave the Way for Positive Sh*t Ahead (Paperback) is just $9.29 (was $22.56)! That's 58% OFF — you save $13.27. 💰
+🏃 RUN — don't walk — The Bikeriders (DVD)  Drama  Universal is just $5.00 (was $29.98)! That's 83% OFF — you save $24.98. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,21 +24,57 @@
 
 ---
 
-## POST 5 — post_5.png
+## POST 3 — post_3.png
 
-💸 Deal of the day — International Concepts Solid Wood Spencer End Table  Unfinished is just $162.89 (was $331.99)! That's 50% OFF — you save $169.10. 💰
+🚨 Hot markdown alert — Minties Teeth Cleaner Dental Cat Treats  Salmon Flavored  2.5 oz is just $2.49 (was $12.39)! That's 79% OFF — you save $9.90. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+
+---
+
+## POST 4 — post_4.png
+
+👀 This one won't last — Ivory Gentle Exfoliating Body Wash  Notes of Jojoba Scent  35oz is just $8.65 (was $39.99)! That's 78% OFF — you save $31.34. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Avery Multi-Use Labels  2-1/2  x 3-3/4   Paper  Removable  Blue Border  Laser/Inkjet  10 Labels is just $2.38 (was $10.98)! That's 78% OFF — you save $8.60. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Fuggler Bouquets 2 x 9 Inch  1 x 3.5 Inch Fugglers (Rabid Rabbit  Sir Nobbynuts  Nobbybits) by ZURU dropped to $24.97 (was $49.11) — 49% OFF!
+🔥 STEAL ALERT 🤯 Crocs Ohio State Classic Clog dropped to $22.99 (was $59.99) — 61% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 2 — reel_2.png
+
+🏃 RUN don't walk 🤯 Hangry Petz: Bella Black Cat - 12  Animal Plush  Squeeze Tummy For Sounds  Hungry Angry Expression  Embroidered Face  Soft Round Companion  Kids dropped to $14.99 (was $36.99) — 59% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -72,33 +84,21 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 2 — reel_2.png
-
-🏃 RUN don't walk 🤯 Agadir Argan Oil Daily Moisturizing Shampoo 12.4 oz dropped to $17.82 (was $27.68) — 35% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
-
----
-
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Hanes Just My Size Women’s Cotton Jersey Tank  Shirttail Hem (Plus ) Briny Pink 3X dropped to $9.00 (was $13.00) — 30% OFF!
+🚨 PRICE DROP 🤯 Modway Emily Twin Upholstered Polyester Fabric Headboard in Ivory dropped to $66.93 (was $162.50) — 58% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Timex Men s Expedition Acadia 40mm Watch – Black Case Black Dial with Black & Brown Leather & Fabric Strap dropped to $41.74 (was $58.00) — 28% OFF!
+👀 Don't sleep on this 🤯 Unique Bargains 10 Pcs Stars Hair Clips Silver Alloy Hair Accessories for Women dropped to $6.68 (was $13.99) — 52% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -110,12 +110,12 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 70% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 89% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Performance Tool W80590 Oil Pressure Switch  — $7.62
-2. Icelandic+ Mini Combo Bites: Cod & Herring - — $5.99
-3. K Tool International Wrench 18mm Combination — $5.31
-4. Zen as F*ck Journals: Find Your F*cking Happ — $9.29
+1. Prinx HiSeason 4S HS1 All Season 235/55R18 1 — $102.07
+2. The Bikeriders (DVD)  Drama  Universal — $5.00
+3. Minties Teeth Cleaner Dental Cat Treats  Sal — $2.49
+4. Ivory Gentle Exfoliating Body Wash  Notes of — $8.65
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

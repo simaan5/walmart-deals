@@ -1,20 +1,8 @@
-# SnagDaily Instagram kit — Aug 04, 2026
+# SnagDaily Instagram kit — Aug 05, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Plano Pocket Tackle Organizer  4.5 L x 3 W x 1.25 H is just $5.32 (was $31.44)! That's 83% OFF — you save $26.12. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
-
----
-
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — MOOG K80466 Stabilizer Bar Link is just $16.25 (was $90.95)! That's 82% OFF — you save $74.70. 💰
+🔥 Today's steal — FEL-PRO 72928 EGR/Exhaust Air Supply Gasket Fits select: 2013-2020 RAM 1500  2003-2012 DODGE RAM 1500 is just $3.93 (was $15.00)! That's 73% OFF — you save $11.07. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,21 +12,21 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 2 — post_2.png
 
-🚨 Hot markdown alert — Way to Celebrate Toddler and Baby Boy Americana Jersey  Sizes 03M-5T is just $2.99 (was $9.98)! That's 70% OFF — you save $6.99. 💰
+🏃 RUN — don't walk — Metabo HPT 12-In Miter Saw Blade  Fiber Cement  115766M is just $27.30 (was $77.99)! That's 65% OFF — you save $50.69. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
-## POST 4 — post_4.png
+## POST 3 — post_3.png
 
-👀 This one won't last — RiverRidge Afton Hall Tree with Shoe Storage Organizer and Bench - Weathered Woodgrain is just $57.76 (was $184.99)! That's 68% OFF — you save $127.23. 💰
+🚨 Hot markdown alert — SAFAVIEH Braided Daphne Geometric Cotton Reversible Area Rug  Red/Multi  5  x 8 is just $71.87 (was $188.00)! That's 61% OFF — you save $116.13. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -48,33 +36,33 @@
 
 ---
 
-## POST 5 — post_5.png
+## POST 4 — post_4.png
 
-💸 Deal of the day — Spy Hangout Sunglasses 6700000000178 - Matte White/Bronze Platinum Spectra Mir is just $22.00 (was $70.00)! That's 68% OFF — you save $48.00. 💰
+👀 This one won't last — Home Details Slim Flat Wired Iron Rails Vanity Tray Makeup Organizer in White is just $15.89 (was $39.07)! That's 59% OFF — you save $23.18. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Crooklyn [DVD]  Feature Drama Drama  Comedy  Independent  Drama  Independent  Comedy  Drama is just $7.99 (was $19.00)! That's 57% OFF — you save $11.01. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Bride Of Frankenstein (DVD)  Horror  Universal dropped to $5.00 (was $13.90) — 64% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 2 — reel_2.png
-
-🏃 RUN don't walk 🤯 MrBeast Lab Swarms MEGA‑TECH Series: Six Pack Includes 5 Micro Beasts  1 MEGA Swarm  Ages 5+ dropped to $10.97 (was $27.98) — 60% OFF!
+🔥 STEAL ALERT 🤯 Furby Furblets Pep-Mint Mini Holiday Friend  Electronic Plush Toy  Stocking Stuffers for Kids 6 and up dropped to $10.22 (was $19.74) — 48% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -84,9 +72,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 3 — reel_3.png
+## REEL 2 — reel_2.png
 
-🚨 PRICE DROP 🤯 Pedigree Dry Puppy Food  Puppy Dry Food with Grilled Steak & Vegetable Flavor  3.5 lb. Bag dropped to $7.50 (was $13.41) — 44% OFF!
+🏃 RUN don't walk 🤯 Milk Bone MaroSnacks Halloween Dog Treats  25 oz Canister dropped to $7.48 (was $12.99) — 42% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -96,26 +84,38 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 4 — reel_4.png
+## REEL 3 — reel_3.png
 
-👀 Don't sleep on this 🤯 EcoTools Lathering Bath Pouf  White & Pink Loofah for Cleansing  for Adults  1 Count dropped to $3.99 (was $6.95) — 42% OFF!
+🚨 PRICE DROP 🤯 Holley Performance 10022-XXXLHOL T-Shirt dropped to $20.36 (was $29.66) — 31% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 4 — reel_4.png
+
+👀 Don't sleep on this 🤯 Men s Easy Reader Digital Watch  Black dropped to $21.92 (was $30.00) — 26% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 83% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 73% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Plano Pocket Tackle Organizer  4.5 L x 3 W x — $5.32
-2. MOOG K80466 Stabilizer Bar Link — $16.25
-3. Way to Celebrate Toddler and Baby Boy Americ — $2.99
-4. RiverRidge Afton Hall Tree with Shoe Storage — $57.76
+1. FEL-PRO 72928 EGR/Exhaust Air Supply Gasket  — $3.93
+2. Metabo HPT 12-In Miter Saw Blade  Fiber Ceme — $27.30
+3. SAFAVIEH Braided Daphne Geometric Cotton Rev — $71.87
+4. Home Details Slim Flat Wired Iron Rails Vani — $15.89
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

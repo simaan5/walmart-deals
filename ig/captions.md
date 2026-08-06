@@ -1,8 +1,8 @@
-# SnagDaily Instagram kit — Aug 05, 2026
+# SnagDaily Instagram kit — Aug 06, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — FEL-PRO 72928 EGR/Exhaust Air Supply Gasket Fits select: 2013-2020 RAM 1500  2003-2012 DODGE RAM 1500 is just $3.93 (was $15.00)! That's 73% OFF — you save $11.07. 💰
+🔥 Today's steal — Americus All Terrain All Terrain LT35X12.50R17 121S E Light Truck Tire is just $165.02 (was $591.88)! That's 72% OFF — you save $426.86. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -14,19 +14,7 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Metabo HPT 12-In Miter Saw Blade  Fiber Cement  115766M is just $27.30 (was $77.99)! That's 65% OFF — you save $50.69. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — SAFAVIEH Braided Daphne Geometric Cotton Reversible Area Rug  Red/Multi  5  x 8 is just $71.87 (was $188.00)! That's 61% OFF — you save $116.13. 💰
+🏃 RUN — don't walk — Frigidaire Professional 198 Lbs. Commercial Ice Maker  Cube Shaped Ice Machine with Auto Clean  LCD Display  Stainless Steel is just $510.00 (was $1,599.99)! That's 68% OFF — you save $1,089.99. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,21 +24,9 @@
 
 ---
 
-## POST 4 — post_4.png
+## POST 3 — post_3.png
 
-👀 This one won't last — Home Details Slim Flat Wired Iron Rails Vanity Tray Makeup Organizer in White is just $15.89 (was $39.07)! That's 59% OFF — you save $23.18. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
-
----
-
-## POST 5 — post_5.png
-
-💸 Deal of the day — Crooklyn [DVD]  Feature Drama Drama  Comedy  Independent  Drama  Independent  Comedy  Drama is just $7.99 (was $19.00)! That's 57% OFF — you save $11.01. 💰
+🚨 Hot markdown alert — Father Brown: Complete Season Eight is just $15.99 (was $39.99)! That's 60% OFF — you save $24.00. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -60,9 +36,45 @@
 
 ---
 
+## POST 4 — post_4.png
+
+👀 This one won't last — Double Action Value is just $12.48 (was $28.86)! That's 56% OFF — you save $16.38. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Kaytee Timothy Complete Guinea Pig Food 25 Pounds is just $19.98 (was $44.99)! That's 55% OFF — you save $25.01. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+
+---
+
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Furby Furblets Pep-Mint Mini Holiday Friend  Electronic Plush Toy  Stocking Stuffers for Kids 6 and up dropped to $10.22 (was $19.74) — 48% OFF!
+🔥 STEAL ALERT 🤯 Pursonic Professional Counter Top Oral Irrigator Water Flosser with 3 Nozzles Plus a Bonus Tongue Scraper dropped to $38.98 (was $79.79) — 51% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 2 — reel_2.png
+
+🏃 RUN don't walk 🤯 Transformers Collaborative Star Wars: The Mandalorian™ N-1 Starfighter  7.5” Action Figure  8+ dropped to $36.77 (was $54.24) — 32% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -72,33 +84,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 2 — reel_2.png
-
-🏃 RUN don't walk 🤯 Milk Bone MaroSnacks Halloween Dog Treats  25 oz Canister dropped to $7.48 (was $12.99) — 42% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
-
----
-
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Holley Performance 10022-XXXLHOL T-Shirt dropped to $20.36 (was $29.66) — 31% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 4 — reel_4.png
-
-👀 Don't sleep on this 🤯 Men s Easy Reader Digital Watch  Black dropped to $21.92 (was $30.00) — 26% OFF!
+🚨 PRICE DROP 🤯 Vanish™ Camo Mesh Hunting Gloves By Allen  Mossy Oak® Beak-Up Country™ dropped to $5.49 (was $7.99) — 31% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -108,14 +96,26 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
+## REEL 4 — reel_4.png
+
+👀 Don't sleep on this 🤯 Hanes Girls Seamless Ruched Bra  2-Pack  Sizes (S-XXL) dropped to $9.08 (was $12.99) — 30% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+
+---
+
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 73% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 72% OFF at Walmart! Which one are you grabbing? 👇
 
-1. FEL-PRO 72928 EGR/Exhaust Air Supply Gasket  — $3.93
-2. Metabo HPT 12-In Miter Saw Blade  Fiber Ceme — $27.30
-3. SAFAVIEH Braided Daphne Geometric Cotton Rev — $71.87
-4. Home Details Slim Flat Wired Iron Rails Vani — $15.89
+1. Americus All Terrain All Terrain LT35X12.50R — $165.02
+2. Frigidaire Professional 198 Lbs. Commercial  — $510.00
+3. Father Brown: Complete Season Eight — $15.99
+4. Double Action Value — $12.48
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

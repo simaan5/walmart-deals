@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Aug 06, 2026
+# SnagDaily Instagram kit — Aug 07, 2026
 
 ## POST 1 — post_1.png
 
@@ -26,7 +26,7 @@
 
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — Father Brown: Complete Season Eight is just $15.99 (was $39.99)! That's 60% OFF — you save $24.00. 💰
+🚨 Hot markdown alert — I Heard the Bells [DVD] is just $10.07 (was $22.98)! That's 56% OFF — you save $12.91. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -38,7 +38,7 @@
 
 ## POST 4 — post_4.png
 
-👀 This one won't last — Double Action Value is just $12.48 (was $28.86)! That's 56% OFF — you save $16.38. 💰
+👀 This one won't last — Safavieh Courtyard Finnian Solid Indoor/Outdoor Area Rug  Black/Beige  8  x 11 is just $114.00 (was $257.00)! That's 55% OFF — you save $143.00. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -50,7 +50,7 @@
 
 ## POST 5 — post_5.png
 
-💸 Deal of the day — Kaytee Timothy Complete Guinea Pig Food 25 Pounds is just $19.98 (was $44.99)! That's 55% OFF — you save $25.01. 💰
+💸 Deal of the day — Sassy Meow Cat Step-In Harness Extra Small - Zest Friends is just $12.23 (was $24.99)! That's 51% OFF — you save $12.76. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -74,7 +74,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Transformers Collaborative Star Wars: The Mandalorian™ N-1 Starfighter  7.5” Action Figure  8+ dropped to $36.77 (was $54.24) — 32% OFF!
+🏃 RUN don't walk 🤯 Melissa & Doug Wooden La Patisserie Bakery (39 Pieces) - FSC Certified dropped to $65.93 (was $119.99) — 45% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -98,7 +98,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Hanes Girls Seamless Ruched Bra  2-Pack  Sizes (S-XXL) dropped to $9.08 (was $12.99) — 30% OFF!
+👀 Don't sleep on this 🤯 Mr. Coffee Expressway 15 Ounce Stainless Steel Thermal Travel Mug dropped to $12.97 (was $16.99) — 23% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -114,8 +114,8 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 1. Americus All Terrain All Terrain LT35X12.50R — $165.02
 2. Frigidaire Professional 198 Lbs. Commercial  — $510.00
-3. Father Brown: Complete Season Eight — $15.99
-4. Double Action Value — $12.48
+3. I Heard the Bells [DVD] — $10.07
+4. Safavieh Courtyard Finnian Solid Indoor/Outd — $114.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

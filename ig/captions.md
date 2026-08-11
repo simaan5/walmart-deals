@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Aug 10, 2026
+# SnagDaily Instagram kit — Aug 11, 2026
 
 ## POST 1 — post_1.png
 
@@ -38,7 +38,7 @@
 
 ## POST 4 — post_4.png
 
-👀 This one won't last — Baldwin BF1212 Water Separator Fuel Filter is just $15.67 (was $68.95)! That's 77% OFF — you save $53.28. 💰
+👀 This one won't last — Dorman Help 40281 Sprk Plg Wire Ret. is just $4.76 (was $21.07)! That's 77% OFF — you save $16.31. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -86,25 +86,25 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Kent Bicycles Adult Multi-Sport Commuter Bicycle Helmets  Rose Gold  Large dropped to $16.00 (was $36.67) — 56% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 4 — reel_4.png
-
-👀 Don't sleep on this 🤯 Caledon Farms Value Pack Sweet Potato Chews 28oz  Dog Treats dropped to $14.97 (was $28.67) — 47% OFF!
+🚨 PRICE DROP 🤯 Icelandic+ Whole Fish & Pieces: Capelin - 1.5oz Bag- Cat Treats  Wild- Caught Air-Dried Fish  Single Ingredient Pet Snacks  Just The Fish Nothing Else dropped to $8.99 (was $20.99) — 57% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
 #walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 4 — reel_4.png
+
+👀 Don't sleep on this 🤯 Kent Bicycles Adult Multi-Sport Commuter Bicycle Helmets  Rose Gold  Large dropped to $16.00 (was $36.67) — 56% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -115,7 +115,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 1. Skull and Bones (PlayStation 5) — $9.90
 2. Thyme & Table Sphere Tall Clear Glass — $5.64
 3. Pautzke Fire Fishing Hooks Size 14 - For Tro — $3.99
-4. Baldwin BF1212 Water Separator Fuel Filter — $15.67
+4. Dorman Help 40281 Sprk Plg Wire Ret. — $4.76
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

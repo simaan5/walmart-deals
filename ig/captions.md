@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Aug 16, 2026
+# SnagDaily Instagram kit — Aug 17, 2026
 
 ## POST 1 — post_1.png
 
@@ -26,31 +26,7 @@
 
 ## POST 3 — post_3.png
 
-🚨 Hot markdown alert — The Children s Place Baby & Toddler Girls Paperbag Waist Pull On Flowy Shorts  Sizes 6M-5T is just $3.42 (was $14.37)! That's 76% OFF — you save $10.95. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
-
----
-
-## POST 4 — post_4.png
-
-👀 This one won't last — Serpentine Belt Fits select: 2004-2010 CHRYSLER PT CRUISER  2004-2005 DODGE NEON is just $7.58 (was $24.95)! That's 69% OFF — you save $17.37. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
-
----
-
-## POST 5 — post_5.png
-
-💸 Deal of the day — Southwire 2307SW8803 16/3 Medium-Duty 13-Amp SJTW General Purpose Extension Cord  25-Feet is just $11.10 (was $34.42)! That's 67% OFF — you save $23.32. 💰
+🚨 Hot markdown alert — Space Jam: A New Legacy (Blu-ray) is just $8.99 (was $39.98)! That's 77% OFF — you save $30.99. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -60,9 +36,45 @@
 
 ---
 
+## POST 4 — post_4.png
+
+👀 This one won't last — The Children s Place Baby & Toddler Girls Paperbag Waist Pull On Flowy Shorts  Sizes 6M-5T is just $3.42 (was $14.37)! That's 76% OFF — you save $10.95. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Dorman Lug Nut  Pack of 1 is just $3.82 (was $13.95)! That's 72% OFF — you save $10.13. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+
+---
+
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Prism Mini Style Accessories - Pink dropped to $5.97 (was $14.31) — 58% OFF!
+🔥 STEAL ALERT 🤯 Scunci Savvy Value Electo-Plated Claw Clips  Multicolor  3 Count dropped to $2.56 (was $7.13) — 64% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 2 — reel_2.png
+
+🏃 RUN don't walk 🤯 Prism Mini Style Accessories - Pink dropped to $5.97 (was $14.31) — 58% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -72,9 +84,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 2 — reel_2.png
+## REEL 3 — reel_3.png
 
-🏃 RUN don't walk 🤯 Jazwares Pet Toys - Marvel Pet Costume Hoodie (Spider-Man) Size Small (POLYBAGGED) dropped to $10.61 (was $24.99) — 57% OFF!
+🚨 PRICE DROP 🤯 Jazwares Pet Toys - Marvel Pet Costume Hoodie (Spider-Man) Size Small (POLYBAGGED) dropped to $10.61 (was $24.99) — 57% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -84,21 +96,9 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 3 — reel_3.png
-
-🚨 PRICE DROP 🤯 Men s Stainless Steel Stars and Stripes Bracelet - Believe by Brilliance dropped to $8.97 (was $17.94) — 50% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
-
----
-
 ## REEL 4 — reel_4.png
 
-👀 Don't sleep on this 🤯 Madden NYC Women s Bandana Tie Scrunchie  2-Pack  Black/White dropped to $5.00 (was $10.00) — 50% OFF!
+👀 Don't sleep on this 🤯 Men s Stainless Steel Stars and Stripes Bracelet - Believe by Brilliance dropped to $8.97 (was $17.94) — 50% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -114,8 +114,8 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 1. Bullet Weights® SSR3-24 Lead Reusable Split  — $3.09
 2. KFFKFF Clear PVC Table Cover Protector  48 i — $16.99
-3. The Children s Place Baby & Toddler Girls Pa — $3.42
-4. Serpentine Belt Fits select: 2004-2010 CHRYS — $7.58
+3. Space Jam: A New Legacy (Blu-ray) — $8.99
+4. The Children s Place Baby & Toddler Girls Pa — $3.42
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

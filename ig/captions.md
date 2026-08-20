@@ -1,8 +1,8 @@
-# SnagDaily Instagram kit — Aug 19, 2026
+# SnagDaily Instagram kit — Aug 20, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — NGK 5266 Laser Iridium Spark Plug. Part# IZFR6K-11S Fits select: 2006-2011 HONDA CIVIC is just $18.27 (was $75.65)! That's 75% OFF — you save $57.38. 💰
+🔥 Today's steal — Autolite APP6043 Double Platinum Spark Plug (4 Pack) is just $6.37 (was $21.99)! That's 71% OFF — you save $15.62. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -14,19 +14,7 @@
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Mobilespec Dual Driver Wired Earbuds Black is just $8.33 (was $32.74)! That's 74% OFF — you save $24.41. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — Wildgame Innovations Sugar Beet Crushed 4lb Brick Deer Attractant is just $4.97 (was $15.55)! That's 68% OFF — you save $10.58. 💰
+🏃 RUN — don't walk — Acme Tackle Little Cleo Fishing Spoon Fire Tiger 3/4 oz. is just $6.49 (was $21.53)! That's 69% OFF — you save $15.04. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,21 +24,9 @@
 
 ---
 
-## POST 4 — post_4.png
+## POST 3 — post_3.png
 
-👀 This one won't last — Carrera Festival Edition Oversized Shield Sunglasses - CA4017S 0807 TE is just $44.00 (was $112.73)! That's 61% OFF — you save $68.73. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
-
----
-
-## POST 5 — post_5.png
-
-💸 Deal of the day — Greendale Home Fashions Premium 18  x 18  Square Filled Pillow Insert (2-Pack) is just $24.38 (was $47.99)! That's 49% OFF — you save $23.61. 💰
+🚨 Hot markdown alert — Modway Stitch 71  Round Modern Pine Wood Dining Table in Brown is just $1,191.67 (was $3,232.50)! That's 63% OFF — you save $2,040.83. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -60,9 +36,33 @@
 
 ---
 
+## POST 4 — post_4.png
+
+👀 This one won't last — Hellboy II: The Golden Army is just $5.46 (was $13.79)! That's 60% OFF — you save $8.33. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+
+---
+
+## POST 5 — post_5.png
+
+💸 Deal of the day — Pet Life ®  Air-Venture  Dual-Zip Airline Approved Panoramic Circular Travel Pet Dog Carrier is just $20.32 (was $48.97)! That's 58% OFF — you save $28.65. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+
+---
+
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 Funko Bitty POP Ride: Star Wars - N1 Starfighter with Mandalorian Collectible Vinyl Mini Figure dropped to $5.86 (was $11.47) — 48% OFF!
+🔥 STEAL ALERT 🤯 Lego: LEGO Christmas Tree Puzzle : Four Connecting 100-Piece Puzzles (Jigsaw) dropped to $10.30 (was $17.95) — 42% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -74,31 +74,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 2 — reel_2.png
 
-🏃 RUN don't walk 🤯 Hartz Nature s Shield Flea and Tick Cat Spray with Cedarwood and Lemongrass Oils  14oz dropped to $7.72 (was $14.87) — 48% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 3 — reel_3.png
-
-🚨 PRICE DROP 🤯 Hudson Baby Infant Boy Cotton Rompers  Royal Safari 2-Pack  0-3 Months dropped to $10.99 (was $20.82) — 47% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 4 — reel_4.png
-
-👀 Don't sleep on this 🤯 Dr. PAWPAW ULTIMATE RED BALM dropped to $5.30 (was $8.96) — 40% OFF!
+🏃 RUN don't walk 🤯 Creme of Nature Coconut Milk Detangling & Conditioning Conditioner  12 fl oz dropped to $7.70 (was $13.14) — 41% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -108,14 +84,38 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
+## REEL 3 — reel_3.png
+
+🚨 PRICE DROP 🤯 Coin Purse God s Girl Pink  (Hardcover) dropped to $5.31 (was $8.15) — 34% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 4 — reel_4.png
+
+👀 Don't sleep on this 🤯 Hudson Baby Infant Girl Premium Quilted Coveralls  Fall Botanical  0-3 Months dropped to $12.84 (was $18.99) — 32% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+
+---
+
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 75% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 71% OFF at Walmart! Which one are you grabbing? 👇
 
-1. NGK 5266 Laser Iridium Spark Plug. Part# IZF — $18.27
-2. Mobilespec Dual Driver Wired Earbuds Black — $8.33
-3. Wildgame Innovations Sugar Beet Crushed 4lb  — $4.97
-4. Carrera Festival Edition Oversized Shield Su — $44.00
+1. Autolite APP6043 Double Platinum Spark Plug  — $6.37
+2. Acme Tackle Little Cleo Fishing Spoon Fire T — $6.49
+3. Modway Stitch 71  Round Modern Pine Wood Din — $1,191.67
+4. Hellboy II: The Golden Army — $5.46
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

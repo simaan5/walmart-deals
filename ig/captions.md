@@ -1,32 +1,20 @@
-# SnagDaily Instagram kit — Aug 29, 2026
+# SnagDaily Instagram kit — Aug 30, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — NGK Spark Plugs 4629 is just $4.14 (was $9.67)! That's 57% OFF — you save $5.53. 💰
+🔥 Today's steal — Believe by Brilliance Men s Stainless Steel Two-Tone Lord s Prayer Dog Tag and Silver-Tone Cross Pendant is just $3.38 (was $17.94)! That's 81% OFF — you save $14.56. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
 ## POST 2 — post_2.png
 
-🏃 RUN — don't walk — Rocketman (Steelbook) (Blu-ray) (Steelbook) (Walmart Exclusive) is just $7.96 (was $18.14)! That's 56% OFF — you save $10.18. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
-
----
-
-## POST 3 — post_3.png
-
-🚨 Hot markdown alert — Strike King Plopping Cork Orange/Green is just $5.97 (was $12.99)! That's 54% OFF — you save $7.02. 💰
+🏃 RUN — don't walk — The Knock Out® Family of Roses  The White Knock Out® Rose  Live Shrub in 1-Gallon Grower Pot is just $19.84 (was $98.44)! That's 79% OFF — you save $78.60. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -36,9 +24,21 @@
 
 ---
 
+## POST 3 — post_3.png
+
+🚨 Hot markdown alert — Bodycology Pure White Gardenia Shea Butter Body Cream  8 oz is just $4.97 (was $21.56)! That's 76% OFF — you save $16.59. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+
+---
+
 ## POST 4 — post_4.png
 
-👀 This one won't last — (Pack of 4) NPS® 2300 Series Deluxe Fabric Upholstered Triple Brace Double Hinge Premium Folding Chair  Greystone is just $149.88 (was $296.00)! That's 49% OFF — you save $146.12. 💰
+👀 This one won't last — TOWL EVERYDAY 18.0 LOBSTER 2PC SERV ST is just $14.32 (was $54.99)! That's 74% OFF — you save $40.67. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -50,7 +50,7 @@
 
 ## POST 5 — post_5.png
 
-💸 Deal of the day — Barbie in the Nutcracker Land of Sweets Horse with Colorful Scented Hair and Candy-Scented Accessories is just $21.97 (was $39.95)! That's 45% OFF — you save $17.98. 💰
+💸 Deal of the day — Squishmallows 12 inch Shannon the Vanilla Ice Cream with Pink Top - Child s Ultra Soft Plush Toy is just $14.88 (was $38.50)! That's 61% OFF — you save $23.62. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -62,7 +62,43 @@
 
 ## REEL 1 — reel_1.png
 
-🔥 STEAL ALERT 🤯 My Duque: COOLA Pet Bed - Small - Black  23.5 x 18  Dog Lounger  Breathable Mesh Fabric  Elevated Structure For Joints  Steel Frame  Animal 30lb Cap dropped to $24.99 (was $37.99) — 34% OFF!
+🔥 STEAL ALERT 🤯 Achilles Desert Hawk HT3 Highway 275/55R20 113H SUV/Crossover Tire dropped to $120.06 (was $305.88) — 60% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 2 — reel_2.png
+
+🏃 RUN don't walk 🤯 Hudson Baby Infant Girl Long Sleeve T-Shirts  Girl Daddy  4 Toddler dropped to $7.66 (was $19.00) — 59% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 3 — reel_3.png
+
+🚨 PRICE DROP 🤯 Dolly Parton s Heartstrings (Box Set) [DVD] dropped to $8.99 (was $19.98) — 55% OFF!
+
+Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+
+---
+
+## REEL 4 — reel_4.png
+
+👀 Don't sleep on this 🤯 Pet-Pourri Dog Coat Refresher  Furrest Fresh  Bergamot  Clove  and Cinnamon and Amber  8 fl oz. dropped to $9.82 (was $19.75) — 50% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -72,50 +108,14 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ---
 
-## REEL 2 — reel_2.png
-
-🏃 RUN don't walk 🤯 Baby Ballers: Michael Jordan  (Board Book) dropped to $6.25 (was $9.40) — 33% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 3 — reel_3.png
-
-🚨 PRICE DROP 🤯 (4 pack) e.l.f. Cream Glide Lip Liner  Truth or Bare  0.03oz dropped to $8.00 (was $12.00) — 33% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
-
----
-
-## REEL 4 — reel_4.png
-
-👀 Don't sleep on this 🤯 J. Buxton Men s Hunt Credit Card Billfold Leather  Brown dropped to $28.99 (was $38.51) — 24% OFF!
-
-Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
-
----
-
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 57% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 81% OFF at Walmart! Which one are you grabbing? 👇
 
-1. NGK Spark Plugs 4629 — $4.14
-2. Rocketman (Steelbook) (Blu-ray) (Steelbook)  — $7.96
-3. Strike King Plopping Cork Orange/Green — $5.97
-4. (Pack of 4) NPS® 2300 Series Deluxe Fabric U — $149.88
+1. Believe by Brilliance Men s Stainless Steel  — $3.38
+2. The Knock Out® Family of Roses  The White Kn — $19.84
+3. Bodycology Pure White Gardenia Shea Butter B — $4.97
+4. TOWL EVERYDAY 18.0 LOBSTER 2PC SERV ST — $14.32
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

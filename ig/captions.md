@@ -1,20 +1,8 @@
-# SnagDaily Instagram kit — Aug 30, 2026
+# SnagDaily Instagram kit — Aug 31, 2026
 
 ## POST 1 — post_1.png
 
-🔥 Today's steal — Believe by Brilliance Men s Stainless Steel Two-Tone Lord s Prayer Dog Tag and Silver-Tone Cross Pendant is just $3.38 (was $17.94)! That's 81% OFF — you save $14.56. 💰
-
-🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
-
-#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
-.
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
-
----
-
-## POST 2 — post_2.png
-
-🏃 RUN — don't walk — The Knock Out® Family of Roses  The White Knock Out® Rose  Live Shrub in 1-Gallon Grower Pot is just $19.84 (was $98.44)! That's 79% OFF — you save $78.60. 💰
+🔥 Today's steal — Sportspower 40  Super Fun Super Saucer Swing  Great for Kids 3-8 is just $35.86 (was $239.99)! That's 85% OFF — you save $204.13. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
@@ -24,27 +12,39 @@
 
 ---
 
-## POST 3 — post_3.png
+## POST 2 — post_2.png
 
-🚨 Hot markdown alert — Bodycology Pure White Gardenia Shea Butter Body Cream  8 oz is just $4.97 (was $21.56)! That's 76% OFF — you save $16.59. 💰
+🏃 RUN — don't walk — Believe by Brilliance Men s Stainless Steel Two-Tone Lord s Prayer Dog Tag and Silver-Tone Cross Pendant is just $3.38 (was $17.94)! That's 81% OFF — you save $14.56. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
-## POST 4 — post_4.png
+## POST 3 — post_3.png
 
-👀 This one won't last — TOWL EVERYDAY 18.0 LOBSTER 2PC SERV ST is just $14.32 (was $54.99)! That's 74% OFF — you save $40.67. 💰
+🚨 Hot markdown alert — TOWL EVERYDAY 18.0 LOBSTER 2PC SERV ST is just $14.32 (was $54.99)! That's 74% OFF — you save $40.67. 💰
 
 🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 .
 #walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+
+---
+
+## POST 4 — post_4.png
+
+👀 This one won't last — Gimme Beauty Claw Clip  Fine Loop  Sand  1 Count is just $2.20 (was $6.61)! That's 66% OFF — you save $4.41. 💰
+
+🔗 Tap the link in my bio to snag it before it's gone. Fresh deals drop every day!
+
+#ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
+.
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -86,7 +86,7 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 3 — reel_3.png
 
-🚨 PRICE DROP 🤯 Dolly Parton s Heartstrings (Box Set) [DVD] dropped to $8.99 (was $19.98) — 55% OFF!
+🚨 PRICE DROP 🤯 The Great Gatsby [UHD] dropped to $19.57 (was $44.98) — 56% OFF!
 
 Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New deals every single day!
 
@@ -110,12 +110,12 @@ Save this 📌 and grab it from the 🔗 link in my bio → @snagdailydeals. New
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 81% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 85% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Believe by Brilliance Men s Stainless Steel  — $3.38
-2. The Knock Out® Family of Roses  The White Kn — $19.84
-3. Bodycology Pure White Gardenia Shea Butter B — $4.97
-4. TOWL EVERYDAY 18.0 LOBSTER 2PC SERV ST — $14.32
+1. Sportspower 40  Super Fun Super Saucer Swing — $35.86
+2. Believe by Brilliance Men s Stainless Steel  — $3.38
+3. TOWL EVERYDAY 18.0 LOBSTER 2PC SERV ST — $14.32
+4. Gimme Beauty Claw Clip  Fine Loop  Sand  1 C — $2.20
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

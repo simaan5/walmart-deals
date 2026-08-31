@@ -19,6 +19,14 @@
     if(a)a.addEventListener('click',function(){decide('granted'); if(window.__sdLoadAnalytics)window.__sdLoadAnalytics();});
     if(d)d.addEventListener('click',function(){decide('denied');});
   })();
+  // GA4 outbound-click events (fires only after consent has loaded gtag) —
+  // lets us reconcile real human clicks against Impact's bot-inflated totals.
+  document.addEventListener('click',function(e){
+    var a=e.target&&e.target.closest?e.target.closest('a[href*="goto.walmart.com"],a[href*="amazon.com"]'):null;
+    if(!a||!window.gtag)return;
+    var m=(a.getAttribute('href')||'').match(/subId1=([^&]+)/);
+    gtag('event','outbound_click',{link_domain:a.hostname||'',link_sub:m?m[1]:''});
+  });
   var nt=document.getElementById('navToggle'), nb=document.getElementById('navBackdrop');
   var nd=document.getElementById('navDrawer');
   function setNav(open){

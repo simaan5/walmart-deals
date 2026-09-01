@@ -299,6 +299,8 @@ html[data-theme="light"] .sec-more{color:#c4390f}
   padding-top:18px;border-top:1px solid var(--line)}
 .legal p{color:var(--ink);opacity:.82;margin:0 0 14px;line-height:1.75}
 .legal a{color:var(--accent);text-decoration:underline}
+.guide-outro{margin:26px 0 18px;padding:14px 18px;border-left:4px solid var(--accent);
+  background:var(--glass);border-radius:0 12px 12px 0;font-size:15px}
 .legal-lanes{display:flex;flex-wrap:wrap;gap:10px;margin:10px 0 4px}
 .legal-lanes a{font-weight:700;font-size:14px;padding:9px 15px;border-radius:999px;background:var(--glass);
   border:1px solid var(--line-2);color:var(--ink);text-decoration:none;transition:all .2s}

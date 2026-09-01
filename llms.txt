@@ -1,0 +1,12 @@
+# SnagDaily
+
+> Deal curation with a price-integrity focus: a real person reviews every published deal, implausible "was" prices are rejected, and prices are stamped at verification time. Current prices always governed by the retailer's site.
+
+## Key pages
+- https://snagdaily.com/: Homepage — today's verified deals
+- https://snagdaily.com/today.html: Today's picks (mirrors our Instagram, refreshed all day)
+- https://snagdaily.com/black-friday.html: Walmart Black Friday 2026 hub — dates, prep, verified deals
+- https://snagdaily.com/walmart-plus.html: Is Walmart+ worth it — honest breakdown
+- https://snagdaily.com/how-to-spot-a-fake-discount.html: Guide: spotting inflated reference prices
+- https://snagdaily.com/best-time-to-buy.html: Guide: best time to buy, by category
+- https://snagdaily.com/about.html: About / editorial standards

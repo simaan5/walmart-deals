@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Sep 01, 2026
+# SnagDaily Instagram kit — Sep 02, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — International Concepts LaCasa Solid Wood Round Coffee Table - Unfinished is just $271.99 (was $495.13 per Walmart)! That's 45% OFF — you save $223.14. 💰
+🔥 Today's steal — BaBylissPRO® Rapido® Dryer (BLACK) is just $100.00 (was $199.99 per Walmart)! That's 50% OFF — you save $99.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Hart 36-In W x 24-In D 5-Drawer Mobile Tool Chest Workbench W/ Wood Top Garage Use is just $249.00 (was $449.00 per Walmart)! That's 44% OFF — you save $200.00. 💰
+✅ Price-checked find — Baby Einstein Ocean Explorers Opus Bath Pals 11-Piece Gift Set Ages 3+ Months is just $11.16 (was $21.51 per Walmart)! That's 48% OFF — you save $10.35. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Two by Two Cat Scratching Pads Plush Grey Cat Tower with 3 Sisal Scratching Columns is just $63.11 (was $105.13 per Walmart)! That's 40% OFF — you save $42.02. 💰
+🚨 Hot markdown alert — Evapolar evaSMART Personal Portable Air Cooler and Humidifier Gray is just $119.99 (was $229.00 per Walmart)! That's 47% OFF — you save $109.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — BaBylissPRO® Nano Titanium™ 1 Curling Wand is just $45.00 (was $69.99 per Walmart)! That's 35% OFF — you save $24.99. 💰
+👀 Worth a serious look — Learning Resources Rainbow Ten-Frames Classroom Set - Classroom and Teacher Supplies Math Games Ages 5+ is just $17.04 (was $31.99 per Walmart)! That's 46% OFF — you save $14.95. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — LEGO Icons Lord of the Rings Barad-dûr Building Set for Adults - Lord of the Rings Collectible for Fans - Includes 6 Minifigures - Gift for Men and Women - 10333 is just $459.99 (was $649.99 per Walmart)! That's 29% OFF — you save $190.00. 💰
+💸 Deal of the day — International Concepts LaCasa Solid Wood Round Coffee Table - Unfinished is just $271.99 (was $495.13 per Walmart)! That's 45% OFF — you save $223.14. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — NC State Wolfpack Economy Canopy is just $145.95 (was $199.95 per Walmart)! That's 27% OFF — you save $54.00. 💰
+🔥 Today's steal — Two by Two Cat Scratching Pads Plush Grey Cat Tower with 3 Sisal Scratching Columns is just $63.11 (was $105.13 per Walmart)! That's 40% OFF — you save $42.02. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Samsung Q Series Soundbar HW QS700F 3.1.2 ch Subwoofer 2026 is just $599.99 (was $799.99 per Walmart)! That's 25% OFF — you save $200.00. 💰
+✅ Price-checked find — Goodyear Wrangler All-Terrain Adventure with Kevlar All Terrain 265/60R18 110T Light Truck Tire is just $234.07 (was $351.07 per Walmart)! That's 33% OFF — you save $117.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 ESCO 10390 22 Ton Air Hydraulic Service Jack Pneumatic Operation Heavy Duty dropped to $693.90 (was $905.99 per Walmart) — 23% OFF!
+🔥 STEAL ALERT 🤯 Casio Men s Heavy Duty Analog Metal Bezel Black Dial Watch MW-620H-1AV dropped to $34.92 (was $47.96 per Walmart) — 27% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Frigidaire Gallery Clear Ice Maker with Sphere Ice Countertop Ice Maker for Whiskey & Cocktails Stainless Steel Black dropped to $248.00 (was $429.99 per Walmart) — 42% OFF!
+✅ PRICE CHECKED 🤯 Msi Mag X870e Gaming Max Wifi Am5 Amd X870e Sata 6gbs Ddr5 Ryzen 9000 / 8000 / 7000 Atx Motherboard dropped to $189.99 (was $259.99 per Walmart) — 26% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Sandusky Boisdale 20 Gauge Steel Single Storage Cabinet ( 36 H x 36 W x 24 D) dropped to $275.94 (was $450.02 per Walmart) — 38% OFF!
+🚨 PRICE DROP 🤯 BaBylissPRO® Nano Titanium™ 1½ Ultra-Thin Straightener dropped to $100.00 (was $199.99 per Walmart) — 50% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Petmate PetBarn 3 Plastic Outdoor Dog House Barn Style Durable Large 30 H for Pets 50 to 70 lbs Tan dropped to $78.75 (was $118.90 per Walmart) — 33% OFF!
+👀 Don't sleep on this 🤯 SereneLife SLPAC12 - Portable Air Conditioner - Compact Home AC Cooling Unit with Built-in Dehumidifier & Fan Modes Includes Window Mount Kit (12 000 BTU) dropped to $329.90 (was $474.99 per Walmart) — 30% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-ESCO 10390 22 Ton Air Hydraulic Service Jack Pneumatic Operation Heavy Duty — $693.90 (was $905.99 per Walmart), 23% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+Casio Men s Heavy Duty Analog Metal Bezel Black Dial Watch MW-620H-1AV — $34.92 (was $47.96 per Walmart), 27% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
 
 ---
 
@@ -145,8 +145,8 @@ ESCO 10390 22 Ton Air Hydraulic Service Jack Pneumatic Operation Heavy Duty — 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Frigidaire Gallery Clear Ice Maker with Sphere Ice Countertop Ice Maker for Whiskey & Cocktails Stainless Steel Black — $248.00 (was $429.99 per Walmart), 42% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Msi Mag X870e Gaming Max Wifi Am5 Amd X870e Sata 6gbs Ddr5 Ryzen 9000 / 8000 / 7000 Atx Motherboard — $189.99 (was $259.99 per Walmart), 26% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -154,8 +154,8 @@ Frigidaire Gallery Clear Ice Maker with Sphere Ice Countertop Ice Maker for Whis
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Sandusky Boisdale 20 Gauge Steel Single Storage Cabinet ( 36 H x 36 W x 24 D) — $275.94 (was $450.02 per Walmart), 38% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+BaBylissPRO® Nano Titanium™ 1½ Ultra-Thin Straightener — $100.00 (was $199.99 per Walmart), 50% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -163,8 +163,8 @@ Sandusky Boisdale 20 Gauge Steel Single Storage Cabinet ( 36 H x 36 W x 24 D) �
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Petmate PetBarn 3 Plastic Outdoor Dog House Barn Style Durable Large 30 H for Pets 50 to 70 lbs Tan — $78.75 (was $118.90 per Walmart), 33% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+SereneLife SLPAC12 - Portable Air Conditioner - Compact Home AC Cooling Unit with Built-in Dehumidifier & Fan Modes Includes Window Mount Kit (12 000 BTU) — $329.90 (was $474.99 per Walmart), 30% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -176,11 +176,11 @@ Petmate PetBarn 3 Plastic Outdoor Dog House Barn Style Durable Large 30 H for Pe
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. International Concepts LaCasa Solid Wood Round Coffee Table  — $271.99 (45% off)
-2. Hart 36-In W x 24-In D 5-Drawer Mobile Tool Chest Workbench  — $249.00 (44% off)
-3. Two by Two Cat Scratching Pads Plush Grey Cat Tower with 3 S — $63.11 (40% off)
-4. BaBylissPRO® Nano Titanium™ 1 Curling Wand — $45.00 (35% off)
-5. LEGO Icons Lord of the Rings Barad-dûr Building Set for Adul — $459.99 (29% off)
+1. BaBylissPRO® Rapido® Dryer (BLACK) — $100.00 (50% off)
+2. Baby Einstein Ocean Explorers Opus Bath Pals 11-Piece Gift S — $11.16 (48% off)
+3. Evapolar evaSMART Personal Portable Air Cooler and Humidifie — $119.99 (47% off)
+4. Learning Resources Rainbow Ten-Frames Classroom Set - Classr — $17.04 (46% off)
+5. International Concepts LaCasa Solid Wood Round Coffee Table  — $271.99 (45% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 45% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 50% OFF at Walmart! Which one are you grabbing? 👇
 
-1. International Concepts LaCasa Solid Wood Rou — $271.99
-2. Hart 36-In W x 24-In D 5-Drawer Mobile Tool  — $249.00
-3. Two by Two Cat Scratching Pads Plush Grey Ca — $63.11
-4. BaBylissPRO® Nano Titanium™ 1 Curling Wand — $45.00
+1. BaBylissPRO® Rapido® Dryer (BLACK) — $100.00
+2. Baby Einstein Ocean Explorers Opus Bath Pals — $11.16
+3. Evapolar evaSMART Personal Portable Air Cool — $119.99
+4. Learning Resources Rainbow Ten-Frames Classr — $17.04
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

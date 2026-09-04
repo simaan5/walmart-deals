@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Sep 03, 2026
+# SnagDaily Instagram kit — Sep 04, 2026
 
 ## POST 1 — post_1.png
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Journee Women s Cosima Esapdrille Round Toe Lace Up Sneakers is just $31.93 (was $51.15 per Walmart)! That's 37% OFF — you save $19.22. 💰
+💸 Deal of the day — Samsung SSD 990 PRO with Heatsink 1TB PCIe 4.0 Seq. Read Speeds Up-to 7 450MB/s Compatible with PlayStation®5 (MZ-V9P1T0CW) is just $149.99 (was $249.37 per Walmart)! That's 39% OFF — you save $99.38. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -64,7 +64,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Goodyear Wrangler All-Terrain Adventure with Kevlar All Terrain 265/60R18 110T Light Truck Tire is just $234.07 (was $351.07 per Walmart)! That's 33% OFF — you save $117.00. 💰
+🔥 Today's steal — GSP NCV69177 CV Axle Assembly Fits select: 2012-2019 TOYOTA PRIUS C is just $116.74 (was $182.15 per Walmart)! That's 35% OFF — you save $65.41. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — GleePet 57 Cat Tree GP78560321 Beige is just $68.55 (was $101.04 per Walmart)! That's 32% OFF — you save $32.49. 💰
+✅ Price-checked find — Lee® Women s Plus Ultra Lux Comfort Anywear Wide Leg Pant is just $25.10 (was $32.82 per Walmart)! That's 23% OFF — you save $7.72. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 TCL 55” Class S55LR Series 4K HDR LED Smart Roku TV (New 2026) - High Brightness LED Backlight Wide Color Gamut Motion Rate 240 Auto Game Mode - 55S55LR dropped to $268.00 (was $369.99 per Walmart) — 27% OFF!
+🔥 STEAL ALERT 🤯 Hudson Baby Kids and Adult Water Shoes for Sports Yoga Beach and Outdoors Sandy Beach 36-37/3-4 Kids/4-5 Womens dropped to $9.99 (was $12.99 per Walmart) — 23% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Casio Men s Heavy Duty Analog Metal Bezel Black Dial Watch MW-620H-1AV dropped to $34.92 (was $47.96 per Walmart) — 27% OFF!
+✅ PRICE CHECKED 🤯 TRIXIE Baza Junior Jute & Plush 3-Level 39 Cat Tower Scratching Posts and Condo Cream dropped to $60.03 (was $76.54 per Walmart) — 21% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 BaBylissPRO® Nano Titanium™ 1½ Ultra-Thin Straightener dropped to $100.00 (was $199.99 per Walmart) — 50% OFF!
+🚨 PRICE DROP 🤯 Timex x Peanuts Unisex Weekender 38mm Watch – Snoopy with Red Fabric Slip-Thru Strap dropped to $57.48 (was $72.90 per Walmart) — 21% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 SAFAVIEH Renewal Rodina Striped Area Rug Light Beige 8 x 10 dropped to $273.99 (was $477.00 per Walmart) — 42% OFF!
+👀 Don't sleep on this 🤯 BaBylissPRO UV-Disinfecting Cordless Double-Foil Shaver dropped to $95.00 (was $189.99 per Walmart) — 50% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-TCL 55” Class S55LR Series 4K HDR LED Smart Roku TV (New 2026) - High Brightness LED Backlight Wide Color Gamut Motion Rate 240 Auto Game Mode - 55S55LR — $268.00 (was $369.99 per Walmart), 27% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Hudson Baby Kids and Adult Water Shoes for Sports Yoga Beach and Outdoors Sandy Beach 36-37/3-4 Kids/4-5 Womens — $9.99 (was $12.99 per Walmart), 23% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
 
 ---
 
@@ -145,8 +145,8 @@ TCL 55” Class S55LR Series 4K HDR LED Smart Roku TV (New 2026) - High Brightne
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Casio Men s Heavy Duty Analog Metal Bezel Black Dial Watch MW-620H-1AV — $34.92 (was $47.96 per Walmart), 27% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
+TRIXIE Baza Junior Jute & Plush 3-Level 39 Cat Tower Scratching Posts and Condo Cream — $60.03 (was $76.54 per Walmart), 21% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -154,8 +154,8 @@ Casio Men s Heavy Duty Analog Metal Bezel Black Dial Watch MW-620H-1AV — $34.9
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-BaBylissPRO® Nano Titanium™ 1½ Ultra-Thin Straightener — $100.00 (was $199.99 per Walmart), 50% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Timex x Peanuts Unisex Weekender 38mm Watch – Snoopy with Red Fabric Slip-Thru Strap — $57.48 (was $72.90 per Walmart), 21% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
 
 ---
 
@@ -163,8 +163,8 @@ BaBylissPRO® Nano Titanium™ 1½ Ultra-Thin Straightener — $100.00 (was $199
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SAFAVIEH Renewal Rodina Striped Area Rug Light Beige 8 x 10 — $273.99 (was $477.00 per Walmart), 42% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+BaBylissPRO UV-Disinfecting Cordless Double-Foil Shaver — $95.00 (was $189.99 per Walmart), 50% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -180,7 +180,7 @@ SAFAVIEH Renewal Rodina Striped Area Rug Light Beige 8 x 10 — $273.99 (was $47
 2. SAFAVIEH Marbella Pompeii Chevron Area Rug Silver 8 x 10 — $255.00 (44% off)
 3. KidKraft Vintage Wooden Play Kitchen with Working Knobs Pink — $83.77 (44% off)
 4. Design House Brookings Ready to Assemble Shaker Sink Base Ki — $268.63 (42% off)
-5. Journee Women s Cosima Esapdrille Round Toe Lace Up Sneakers — $31.93 (37% off)
+5. Samsung SSD 990 PRO with Heatsink 1TB PCIe 4.0 Seq. Read Spe — $149.99 (39% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .

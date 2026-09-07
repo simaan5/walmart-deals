@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Sep 06, 2026
+# SnagDaily Instagram kit — Sep 07, 2026
 
 ## POST 1 — post_1.png
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Red Foldable Sport Backpack is just $16.97 (was $26.78 per Walmart)! That's 36% OFF — you save $9.81. 💰
+💸 Deal of the day — DARING DIVA Women s Plus Size High Waist A-Line Skirt with Pockets 1X Black is just $28.99 (was $47.79 per Walmart)! That's 39% OFF — you save $18.80. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Disney Mickey Mouse Boy Toddler Flip Flops with Back Strap Blue Red 11-12 is just $19.99 (was $29.99 per Walmart)! That's 33% OFF — you save $10.00. 💰
+🔥 Today's steal — Radar Renegade R/T Rugged Terrain LT305/55R20 125/122Q F Light Truck Tire is just $209.08 (was $330.85 per Walmart)! That's 36% OFF — you save $121.77. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Nintendo Hadskabaa 32gb Neon Switch Handheld Game Console is just $216.00 (was $319.99 per Walmart)! That's 32% OFF — you save $103.99. 💰
+✅ Price-checked find — Red Foldable Sport Backpack is just $16.97 (was $26.78 per Walmart)! That's 36% OFF — you save $9.81. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Falken RI 150 11R22.5 146/143L H Commercial Tire dropped to $415.08 (was $607.44 per Walmart) — 31% OFF!
+🔥 STEAL ALERT 🤯 Nintendo Hadskabaa 32gb Neon Switch Handheld Game Console dropped to $216.00 (was $319.99 per Walmart) — 32% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Clinique Happy Heart Perfume Spray Perfume for Women 1.7 fl oz dropped to $25.83 (was $44.99 per Walmart) — 42% OFF!
+🚨 PRICE DROP 🤯 Tiki Cat Friends Wet Cat Food Mega Pack Tuna Favorites 2.8 oz. cans (36 Count) dropped to $43.50 (was $56.99 per Walmart) — 23% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 KFFKFF Wall-Mounted Basketball Hoop 54-inch Polycarbonate Backboard with Hand-Crank Height Adjustment Durable 0.11-inch Thick Backboard Classic Design for Indoor and Outdoor Play dropped to $181.99 (was $359.99 per Walmart) — 49% OFF!
+👀 Don't sleep on this 🤯 Sabrina Carpenter Me Espresso Eau De Parfum for Women 30ml/1oz dropped to $26.32 (was $50.00 per Walmart) — 47% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Falken RI 150 11R22.5 146/143L H Commercial Tire — $415.08 (was $607.44 per Walmart), 31% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+Nintendo Hadskabaa 32gb Neon Switch Handheld Game Console — $216.00 (was $319.99 per Walmart), 32% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -154,8 +154,8 @@ Casio Men s Large Dial Analog Sport Watch with Khaki Nylon Strap — $32.97 (was
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Clinique Happy Heart Perfume Spray Perfume for Women 1.7 fl oz — $25.83 (was $44.99 per Walmart), 42% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Tiki Cat Friends Wet Cat Food Mega Pack Tuna Favorites 2.8 oz. cans (36 Count) — $43.50 (was $56.99 per Walmart), 23% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -163,8 +163,8 @@ Clinique Happy Heart Perfume Spray Perfume for Women 1.7 fl oz — $25.83 (was $
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-KFFKFF Wall-Mounted Basketball Hoop 54-inch Polycarbonate Backboard with Hand-Crank Height Adjustment Durable 0.11-inch Thick Backboard Classic Design for Indoor and Outdoor Play — $181.99 (was $359.99 per Walmart), 49% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Sabrina Carpenter Me Espresso Eau De Parfum for Women 30ml/1oz — $26.32 (was $50.00 per Walmart), 47% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -180,7 +180,7 @@ KFFKFF Wall-Mounted Basketball Hoop 54-inch Polycarbonate Backboard with Hand-Cr
 2. FitRx Stair Stepper Summit Stair Climber Exercise Machine wi — $1,199.00 (50% off)
 3. Shark Ip3251 PowerDetect Cordless Stick Vacuum Cleaner Dark  — $318.00 (42% off)
 4. LEGO Editions FIFA World Cup Official Trophy Building Set -  — $120.00 (40% off)
-5. Red Foldable Sport Backpack — $16.97 (36% off)
+5. DARING DIVA Women s Plus Size High Waist A-Line Skirt with P — $28.99 (39% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .

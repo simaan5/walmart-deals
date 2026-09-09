@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Sep 08, 2026
+# SnagDaily Instagram kit — Sep 09, 2026
 
 ## POST 1 — post_1.png
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — SAFAVIEH Natural Fiber Crofton Braided Area Rug Natural 8 x 10 is just $278.48 (was $547.00 per Walmart)! That's 49% OFF — you save $268.52. 💰
+✅ Price-checked find — Silver Jeans Co. Women s Plus Size Suki Mid Rise Skinny Leg Jeans Waist sizes 12-24 is just $93.80 (was $162.00 per Walmart)! That's 42% OFF — you save $68.20. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -28,7 +28,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Pet Life ® Paw-Pleasant Hanging Sisal & Jute Carpet Kitty Cat Scratcher with Toy is just $12.99 (was $24.82 per Walmart)! That's 47% OFF — you save $11.83. 💰
+🚨 Hot markdown alert — Noba Animal: Noba Zero - Litter Waste Management System Pets-Cats-Kittens Scoop Holder & Bag Dispenser Easy Cleanup Bag Liner Seal Lid Compact is just $19.99 (was $33.99 per Walmart)! That's 41% OFF — you save $14.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
@@ -40,7 +40,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Sabrina Carpenter Me Espresso Eau De Parfum for Women 30ml/1oz is just $26.32 (was $50.00 per Walmart)! That's 47% OFF — you save $23.68. 💰
+👀 Worth a serious look — essie Nail Polish Swoon In The Lagoon Ripple Reflect 0.46 fl oz is just $9.99 (was $16.50 per Walmart)! That's 39% OFF — you save $6.51. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Silver Jeans Co. Women s Plus Size Suki Mid Rise Skinny Leg Jeans Waist sizes 12-24 is just $93.80 (was $162.00 per Walmart)! That's 42% OFF — you save $68.20. 💰
+💸 Deal of the day — Jamesdar Kurv Cafe Counter Table 24 UV painted MDF Steel frame 150 Lbs Wt Capacity White is just $190.79 (was $312.99 per Walmart)! That's 39% OFF — you save $122.20. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Elkay Dayton Stainless Steel 33 x 19 x 6-7/16 Equal Double Bowl Drop-in Sink is just $118.85 (was $193.00 per Walmart)! That's 38% OFF — you save $74.15. 💰
+🔥 Today's steal — LEGO Friends Sea Rescue Boat 41734 Building Toy Set for Boys & Girls Ages 7+ Who Love the Sea Includes 4 Mini-Dolls a Submarine Baby Dolphin and Toy Accessories for Ocean Life Role Play is just $43.19 (was $70.01 per Walmart)! That's 38% OFF — you save $26.82. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — LEGO Super Heroes tbd-LSH-26-2021 76193 is just $159.99 (was $236.61 per Walmart)! That's 32% OFF — you save $76.62. 💰
+✅ Price-checked find — Frogg Toggs Men’s Amphib Bootfoot Chest Waders Neoprene Waders for Fishing with 200g Thinsulate Felt Boots Forest Green Size 10 is just $92.29 (was $139.99 per Walmart)! That's 34% OFF — you save $47.70. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -100,7 +100,7 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 ACDelco 24276411 Transmission Control Module dropped to $114.00 (was $183.83 per Walmart) — 38% OFF!
+✅ PRICE CHECKED 🤯 GMB Engine Water Pump Fits select: 2006-2012 MITSUBISHI ECLIPSE 2004-2012 MITSUBISHI GALANT dropped to $46.02 (was $86.18 per Walmart) — 46% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Archie Collection Four-Light Vintage Brass Clear Double Prismatic Glass Coastal Bath Vanity Light dropped to $233.99 (was $448.05 per Walmart) — 47% OFF!
+🚨 PRICE DROP 🤯 Basic Esd and I/O Design (Hardcover) dropped to $108.59 (was $170.26 per Walmart) — 36% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,7 +124,7 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 MidWest Homes for Pets Dog Crate Life Stages 36 Double Door Folding Metal Dog Crate; Divider Panel Floor Protecting Feet Leak-Proof Dog Pan; 35.63 in x 24.45 in x 21.93 in Intermediate dropped to $68.99 (was $89.99 per Walmart) — 23% OFF!
+👀 Don't sleep on this 🤯 Pet Life ® Paw-Pleasant Hanging Sisal & Jute Carpet Kitty Cat Scratcher with Toy dropped to $12.99 (was $24.82 per Walmart) — 47% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -145,7 +145,7 @@ SHOKZ OpenSwim Pro - Open-Ear Bluetooth Headphones & 32GB MP3 Player IP68 Waterp
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-ACDelco 24276411 Transmission Control Module — $114.00 (was $183.83 per Walmart), 38% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+GMB Engine Water Pump Fits select: 2006-2012 MITSUBISHI ECLIPSE 2004-2012 MITSUBISHI GALANT — $46.02 (was $86.18 per Walmart), 46% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
@@ -154,8 +154,8 @@ ACDelco 24276411 Transmission Control Module — $114.00 (was $183.83 per Walmar
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Archie Collection Four-Light Vintage Brass Clear Double Prismatic Glass Coastal Bath Vanity Light — $233.99 (was $448.05 per Walmart), 47% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Basic Esd and I/O Design (Hardcover) — $108.59 (was $170.26 per Walmart), 36% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -163,7 +163,7 @@ Archie Collection Four-Light Vintage Brass Clear Double Prismatic Glass Coastal 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-MidWest Homes for Pets Dog Crate Life Stages 36 Double Door Folding Metal Dog Crate; Divider Panel Floor Protecting Feet Leak-Proof Dog Pan; 35.63 in x 24.45 in x 21.93 in Intermediate — $68.99 (was $89.99 per Walmart), 23% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Pet Life ® Paw-Pleasant Hanging Sisal & Jute Carpet Kitty Cat Scratcher with Toy — $12.99 (was $24.82 per Walmart), 47% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
@@ -177,10 +177,10 @@ MidWest Homes for Pets Dog Crate Life Stages 36 Double Door Folding Metal Dog Cr
 🔥 Today's Top 5 — swipe through, save for later 📌
 
 1. Dorman Oe Solutions Window Regulator and Motor Assembly 2011 — $89.78 (54% off)
-2. SAFAVIEH Natural Fiber Crofton Braided Area Rug Natural 8 x  — $278.48 (49% off)
-3. Pet Life ® Paw-Pleasant Hanging Sisal & Jute Carpet Kitty Ca — $12.99 (47% off)
-4. Sabrina Carpenter Me Espresso Eau De Parfum for Women 30ml/1 — $26.32 (47% off)
-5. Silver Jeans Co. Women s Plus Size Suki Mid Rise Skinny Leg  — $93.80 (42% off)
+2. Silver Jeans Co. Women s Plus Size Suki Mid Rise Skinny Leg  — $93.80 (42% off)
+3. Noba Animal: Noba Zero - Litter Waste Management System Pets — $19.99 (41% off)
+4. essie Nail Polish Swoon In The Lagoon Ripple Reflect 0.46 fl — $9.99 (39% off)
+5. Jamesdar Kurv Cafe Counter Table 24 UV painted MDF Steel fra — $190.79 (39% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -193,9 +193,9 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 🔥 TODAY'S TOP DEALS — up to 54% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Dorman Oe Solutions Window Regulator and Mot — $89.78
-2. SAFAVIEH Natural Fiber Crofton Braided Area  — $278.48
-3. Pet Life ® Paw-Pleasant Hanging Sisal & Jute — $12.99
-4. Sabrina Carpenter Me Espresso Eau De Parfum  — $26.32
+2. Silver Jeans Co. Women s Plus Size Suki Mid  — $93.80
+3. Noba Animal: Noba Zero - Litter Waste Manage — $19.99
+4. essie Nail Polish Swoon In The Lagoon Ripple — $9.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

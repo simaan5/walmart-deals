@@ -1,10 +1,10 @@
-# SnagDaily Instagram kit — Sep 17, 2026
+# SnagDaily Instagram kit — Sep 18, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Giro Coalition Spherical Adult Full-Face Bike Helmet - Matte Black - Size XS/S (51–55 cm) is just $168.00 (was $349.95 per Walmart)! That's 52% OFF — you save $181.95. 💰
+🔥 Today's steal — Monopoly Harry Potter Edition Board Game Family Games for 2 to 6 Players for Kids Ages 8 and up is just $22.49 (was $39.99 per Walmart)! That's 43% OFF — you save $17.50. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Riverdale: The Complete Series (DVD) is just $57.99 (was $112.99 per Walmart)! That's 48% OFF — you save $55.00. 💰
+✅ Price-checked find — JESPET & GOOPAWS: Quilted Pet Front Car Seat Cover - Black - Dog Travel Protection 40x20.5 Waterproof Anti-Scratch Durable Fits Most Vehicles is just $19.99 (was $33.99 per Walmart)! That's 41% OFF — you save $14.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Fortune Tormenta H/T FSR305 Highway 245/50R20 102V Passenger Tire is just $112.07 (was $204.99 per Walmart)! That's 45% OFF — you save $92.92. 💰
+🚨 Hot markdown alert — Asher Record Storage Stand Dark Brown is just $188.00 (was $318.96 per Walmart)! That's 41% OFF — you save $130.96. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Design House Harris Traditional Satin Nickel 2-Light Dimmable Dual Mount Ceiling Light with Frosted Glass Shade is just $41.32 (was $72.95 per Walmart)! That's 43% OFF — you save $31.63. 💰
+👀 Worth a serious look — Nexen Winguard Winspike 3 Winter 255/65R18 111T Passenger Tire is just $151.96 (was $257.07 per Walmart)! That's 40% OFF — you save $105.11. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — JESPET & GOOPAWS: Quilted Pet Front Car Seat Cover - Black - Dog Travel Protection 40x20.5 Waterproof Anti-Scratch Durable Fits Most Vehicles is just $19.99 (was $33.99 per Walmart)! That's 41% OFF — you save $14.00. 💰
+💸 Deal of the day — Christopher Knight Home 22.17 Dog Side Table Sculptural MGO Pedestal End Table Black + Brown is just $108.99 (was $153.99 per Walmart)! That's 29% OFF — you save $45.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — TMS Farmhouse Ladder Style Mid-Back Wood Counter Stools Set of 2 24 Seat Height Walnut/Natural is just $96.59 (was $160.99 per Walmart)! That's 40% OFF — you save $64.40. 💰
+🔥 Today's steal — 2025 Panini Absolute Football Trading Cards Mega Box is just $49.87 (was $65.00 per Walmart)! That's 23% OFF — you save $15.13. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Jose Eber: Professional Series - Detangler Brush - 100% Natural Boar Hair With Nylon Bristle Reduces Breakage For All Hairtypes Salon Styling Tool is just $17.99 (was $24.99 per Walmart)! That's 28% OFF — you save $7.00. 💰
+✅ Price-checked find — Rick Wakeman - The Prog Years Redux: 1973-1977 - 27CD + 5DVD Box Set - Music & Performance - CD is just $271.87 (was $349.99 per Walmart)! That's 22% OFF — you save $78.12. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -88,7 +88,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Monopoly Harry Potter Edition Board Game Family Games for 2 to 6 Players for Kids Ages 8 and up dropped to $22.49 (was $39.99 per Walmart) — 43% OFF!
+🔥 STEAL ALERT 🤯 Melissa & Doug Wooden Emergency Vehicle Carrier dropped to $18.79 (was $26.99 per Walmart) — 30% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Rick Wakeman - The Prog Years Redux: 1973-1977 - 27CD + 5DVD Box Set - Music & Performance - CD dropped to $271.87 (was $349.99 per Walmart) — 22% OFF!
+✅ PRICE CHECKED 🤯 Pets First Nfl New Orleans Saints Reversible Bandana Licensed Reversible Pet Bandana - 2 Sided Bandana dropped to $9.42 (was $12.99 per Walmart) — 27% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Venom Power Ragnarok GTS 305/30ZR22 105Y Extra Load High Performance All-Season Sport Utility Vehicle One Tire dropped to $176.07 (was $299.99 per Walmart) — 41% OFF!
+🚨 PRICE DROP 🤯 Shoreline Stackable Corner Pantry dropped to $184.99 (was $276.80 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Christopher Knight Home 22.17 Dog Side Table Sculptural MGO Pedestal End Table Black + Brown dropped to $108.99 (was $153.99 per Walmart) — 29% OFF!
+👀 Don't sleep on this 🤯 Groundspeed Voyager SV All Season 255/65R18 111H Passenger Tire dropped to $108.06 (was $204.99 per Walmart) — 47% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,7 +136,7 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Monopoly Harry Potter Edition Board Game Family Games for 2 to 6 Players for Kids Ages 8 and up — $22.49 (was $39.99 per Walmart), 43% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Melissa & Doug Wooden Emergency Vehicle Carrier — $18.79 (was $26.99 per Walmart), 30% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
@@ -145,8 +145,8 @@ Monopoly Harry Potter Edition Board Game Family Games for 2 to 6 Players for Kid
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Rick Wakeman - The Prog Years Redux: 1973-1977 - 27CD + 5DVD Box Set - Music & Performance - CD — $271.87 (was $349.99 per Walmart), 22% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Pets First Nfl New Orleans Saints Reversible Bandana Licensed Reversible Pet Bandana - 2 Sided Bandana — $9.42 (was $12.99 per Walmart), 27% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -154,8 +154,8 @@ Rick Wakeman - The Prog Years Redux: 1973-1977 - 27CD + 5DVD Box Set - Music & P
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Venom Power Ragnarok GTS 305/30ZR22 105Y Extra Load High Performance All-Season Sport Utility Vehicle One Tire — $176.07 (was $299.99 per Walmart), 41% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+Shoreline Stackable Corner Pantry — $184.99 (was $276.80 per Walmart), 33% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
 
@@ -163,8 +163,8 @@ Venom Power Ragnarok GTS 305/30ZR22 105Y Extra Load High Performance All-Season 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Christopher Knight Home 22.17 Dog Side Table Sculptural MGO Pedestal End Table Black + Brown — $108.99 (was $153.99 per Walmart), 29% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Groundspeed Voyager SV All Season 255/65R18 111H Passenger Tire — $108.06 (was $204.99 per Walmart), 47% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
 
@@ -176,11 +176,11 @@ Christopher Knight Home 22.17 Dog Side Table Sculptural MGO Pedestal End Table B
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Giro Coalition Spherical Adult Full-Face Bike Helmet - Matte — $168.00 (52% off)
-2. Riverdale: The Complete Series (DVD) — $57.99 (48% off)
-3. Fortune Tormenta H/T FSR305 Highway 245/50R20 102V Passenger — $112.07 (45% off)
-4. Design House Harris Traditional Satin Nickel 2-Light Dimmabl — $41.32 (43% off)
-5. JESPET & GOOPAWS: Quilted Pet Front Car Seat Cover - Black - — $19.99 (41% off)
+1. Monopoly Harry Potter Edition Board Game Family Games for 2  — $22.49 (43% off)
+2. JESPET & GOOPAWS: Quilted Pet Front Car Seat Cover - Black - — $19.99 (41% off)
+3. Asher Record Storage Stand Dark Brown — $188.00 (41% off)
+4. Nexen Winguard Winspike 3 Winter 255/65R18 111T Passenger Ti — $151.96 (40% off)
+5. Christopher Knight Home 22.17 Dog Side Table Sculptural MGO  — $108.99 (29% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 52% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 47% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Giro Coalition Spherical Adult Full-Face Bik — $168.00
-2. Riverdale: The Complete Series (DVD) — $57.99
-3. Fortune Tormenta H/T FSR305 Highway 245/50R2 — $112.07
-4. Design House Harris Traditional Satin Nickel — $41.32
+1. Monopoly Harry Potter Edition Board Game Fam — $22.49
+2. JESPET & GOOPAWS: Quilted Pet Front Car Seat — $19.99
+3. Asher Record Storage Stand Dark Brown — $188.00
+4. Nexen Winguard Winspike 3 Winter 255/65R18 1 — $151.96
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

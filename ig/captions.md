@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Sep 19, 2026
+# SnagDaily Instagram kit — Sep 20, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Sassy Meow Cat Step-In Harness XS - Sunflower Dreams is just $13.09 (was $24.99 per Walmart)! That's 47% OFF — you save $11.90. 💰
+🔥 Today's steal — Fitflop Women s Delicato Bow Quilted-Leather Ballerina Flat is just $49.99 (was $130.00 per Walmart)! That's 61% OFF — you save $80.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Sojag Savannah 10 x 10 x 9 ft Black Aluminum Frame Gazebo Galvanized Steel Roof for Maximum Protection Contemporary Design is just $883.40 (was $1,599.99 per Walmart)! That's 44% OFF — you save $716.59. 💰
+✅ Price-checked find — BADGLEY MISCHKA Leopard Travel Tote Weekender Bag is just $69.99 (was $139.99 per Walmart)! That's 50% OFF — you save $70.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — ACDelco GM Original Equipment 17113698 Multi-Port Fuel Injector Fits select: 2001-2007 CHEVROLET SILVERADO 2001-2006 CHEVROLET TAHOE is just $101.85 (was $176.95 per Walmart)! That's 42% OFF — you save $75.10. 💰
+🚨 Hot markdown alert — Honest Baby Clothing Baby Boy or Girl Gender Neutral Organic Cotton Over the Top Gift Set 24 Piece (Newborn-6 Months) is just $69.83 (was $139.00 per Walmart)! That's 49% OFF — you save $69.17. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -40,7 +40,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Asher Record Storage Stand Dark Brown is just $188.00 (was $318.96 per Walmart)! That's 41% OFF — you save $130.96. 💰
+👀 Worth a serious look — Hives & Honey Women s Chelsea Wood Jewelry Storage Armoire with Mirror Doors in Walnut is just $239.20 (was $449.00 per Walmart)! That's 46% OFF — you save $209.80. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Roberto Alagna - All opera - Complete Opera Recordings on Warner Classics - Music & Performance - CD is just $76.07 (was $126.62 per Walmart)! That's 39% OFF — you save $50.55. 💰
+💸 Deal of the day — Sojag Savannah 10 x 10 x 9 ft Black Aluminum Frame Gazebo Galvanized Steel Roof for Maximum Protection Contemporary Design is just $883.40 (was $1,599.99 per Walmart)! That's 44% OFF — you save $716.59. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Melissa & Doug Wooden Emergency Vehicle Carrier is just $18.79 (was $26.99 per Walmart)! That's 30% OFF — you save $8.20. 💰
+🔥 Today's steal — Samson Radial Truck GL266D(Closed Shoulder) 11R22.5 146M H Commercial Tire is just $298.06 (was $495.83 per Walmart)! That's 39% OFF — you save $197.77. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — The Cut Buddy Mini Buddy Trimmer is just $17.77 (was $24.97 per Walmart)! That's 28% OFF — you save $7.20. 💰
+✅ Price-checked find — KFFKFF Dog Ramp Folding Pet Ramp 41.3 Long Ramp 13.77 -25.59 Adjustable Height is just $62.99 (was $104.56 per Walmart)! That's 39% OFF — you save $41.57. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 LSU Tigers Sweatshirt Blanket dropped to $41.99 (was $55.99 per Walmart) — 25% OFF!
+🔥 STEAL ALERT 🤯 (6 pack) True Ocean Breeze & Cedar Body Wash Sulfate-Free Moisturizing and Hydrating Formula for Women & Men 18 fl oz dropped to $26.84 (was $41.82 per Walmart) — 35% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 2025 Panini Absolute Football Trading Cards Mega Box dropped to $49.87 (was $65.00 per Walmart) — 23% OFF!
+✅ PRICE CHECKED 🤯 TCL 55 QM51L Series QD-Mini LED QLED 4K UHD HDR Smart Google TV (New 2026) - Local Dimming Pro Halo Control System High Brightness Pro TCL AIPQ Processor Game Accelerator 144 - 55QM51L dropped to $398.00 (was $599.99 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 KONG® EZ Clear™ Recovery Collar Easy Hook and Loop Straps for Adjusting Medium dropped to $15.99 (was $22.84 per Walmart) — 30% OFF!
+🚨 PRICE DROP 🤯 Dynacraft Krome Boys 20 BMX Bike Ages 7-14 Blue dropped to $138.00 (was $189.99 per Walmart) — 27% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 KFFKFF 60 x 30 Modern Alcove Acrylic Bathtub Soaking Tub with Right-Hand Drain and Overflow Spacious Rectangular Deep Bath for Bathroom with Built-In Flange White dropped to $355.99 (was $487.99 per Walmart) — 27% OFF!
+👀 Don't sleep on this 🤯 Brilliance Fine Jewelry 1/2 CT Composite Lab Grown Diamond Women Engagement Ring Sterling Silver dropped to $198.00 (was $248.00 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-LSU Tigers Sweatshirt Blanket — $41.99 (was $55.99 per Walmart), 25% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
+(6 pack) True Ocean Breeze & Cedar Body Wash Sulfate-Free Moisturizing and Hydrating Formula for Women & Men 18 fl oz — $26.84 (was $41.82 per Walmart), 35% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -145,8 +145,8 @@ LSU Tigers Sweatshirt Blanket — $41.99 (was $55.99 per Walmart), 25% off. It's
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-2025 Panini Absolute Football Trading Cards Mega Box — $49.87 (was $65.00 per Walmart), 23% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #other
+TCL 55 QM51L Series QD-Mini LED QLED 4K UHD HDR Smart Google TV (New 2026) - Local Dimming Pro Halo Control System High Brightness Pro TCL AIPQ Processor Game Accelerator 144 - 55QM51L — $398.00 (was $599.99 per Walmart), 33% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -154,8 +154,8 @@ LSU Tigers Sweatshirt Blanket — $41.99 (was $55.99 per Walmart), 25% off. It's
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-KONG® EZ Clear™ Recovery Collar Easy Hook and Loop Straps for Adjusting Medium — $15.99 (was $22.84 per Walmart), 30% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+Dynacraft Krome Boys 20 BMX Bike Ages 7-14 Blue — $138.00 (was $189.99 per Walmart), 27% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -163,8 +163,8 @@ KONG® EZ Clear™ Recovery Collar Easy Hook and Loop Straps for Adjusting Mediu
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-KFFKFF 60 x 30 Modern Alcove Acrylic Bathtub Soaking Tub with Right-Hand Drain and Overflow Spacious Rectangular Deep Bath for Bathroom with Built-In Flange White — $355.99 (was $487.99 per Walmart), 27% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Brilliance Fine Jewelry 1/2 CT Composite Lab Grown Diamond Women Engagement Ring Sterling Silver — $198.00 (was $248.00 per Walmart), 20% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
 
 ---
 
@@ -176,11 +176,11 @@ KFFKFF 60 x 30 Modern Alcove Acrylic Bathtub Soaking Tub with Right-Hand Drain a
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Sassy Meow Cat Step-In Harness XS - Sunflower Dreams — $13.09 (47% off)
-2. Sojag Savannah 10 x 10 x 9 ft Black Aluminum Frame Gazebo Ga — $883.40 (44% off)
-3. ACDelco GM Original Equipment 17113698 Multi-Port Fuel Injec — $101.85 (42% off)
-4. Asher Record Storage Stand Dark Brown — $188.00 (41% off)
-5. Roberto Alagna - All opera - Complete Opera Recordings on Wa — $76.07 (39% off)
+1. Fitflop Women s Delicato Bow Quilted-Leather Ballerina Flat — $49.99 (61% off)
+2. BADGLEY MISCHKA Leopard Travel Tote Weekender Bag — $69.99 (50% off)
+3. Honest Baby Clothing Baby Boy or Girl Gender Neutral Organic — $69.83 (49% off)
+4. Hives & Honey Women s Chelsea Wood Jewelry Storage Armoire w — $239.20 (46% off)
+5. Sojag Savannah 10 x 10 x 9 ft Black Aluminum Frame Gazebo Ga — $883.40 (44% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 53% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 61% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Sassy Meow Cat Step-In Harness XS - Sunflowe — $13.09
-2. Sojag Savannah 10 x 10 x 9 ft Black Aluminum — $883.40
-3. ACDelco GM Original Equipment 17113698 Multi — $101.85
-4. Asher Record Storage Stand Dark Brown — $188.00
+1. Fitflop Women s Delicato Bow Quilted-Leather — $49.99
+2. BADGLEY MISCHKA Leopard Travel Tote Weekende — $69.99
+3. Honest Baby Clothing Baby Boy or Girl Gender — $69.83
+4. Hives & Honey Women s Chelsea Wood Jewelry S — $239.20
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

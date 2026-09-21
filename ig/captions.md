@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Sep 20, 2026
+# SnagDaily Instagram kit — Sep 21, 2026
 
 ## POST 1 — post_1.png
 
@@ -52,7 +52,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Sojag Savannah 10 x 10 x 9 ft Black Aluminum Frame Gazebo Galvanized Steel Roof for Maximum Protection Contemporary Design is just $883.40 (was $1,599.99 per Walmart)! That's 44% OFF — you save $716.59. 💰
+💸 Deal of the day — Design House Brookings 24 x 21 Ready to Assemble Solid Wood Bathroom Vanity Sherwin Williams® Gray is just $208.63 (was $368.69 per Walmart)! That's 43% OFF — you save $160.06. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
@@ -180,7 +180,7 @@ Brilliance Fine Jewelry 1/2 CT Composite Lab Grown Diamond Women Engagement Ring
 2. BADGLEY MISCHKA Leopard Travel Tote Weekender Bag — $69.99 (50% off)
 3. Honest Baby Clothing Baby Boy or Girl Gender Neutral Organic — $69.83 (49% off)
 4. Hives & Honey Women s Chelsea Wood Jewelry Storage Armoire w — $239.20 (46% off)
-5. Sojag Savannah 10 x 10 x 9 ft Black Aluminum Frame Gazebo Ga — $883.40 (44% off)
+5. Design House Brookings 24 x 21 Ready to Assemble Solid Wood  — $208.63 (43% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .

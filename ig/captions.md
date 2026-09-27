@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Sep 26, 2026
+# SnagDaily Instagram kit — Sep 27, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Northlight LED Lighted Snowy Cottage House Christmas Village Decoration - 6.5 is just $27.59 (was $55.14 per Walmart)! That's 50% OFF — you save $27.55. 💰
+🔥 Today's steal — Disney Toy Story Women s Buzz Lightyear and Woody 11 Mini Backpack Multi is just $10.80 (was $24.97 per Walmart)! That's 56% OFF — you save $14.17. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Frigidaire 4.5 Cu. ft. Compact Fridge with Chiller Compartment Mini Fridge for Office Bedroom Dorm Room or Cabin Slate is just $188.00 (was $359.99 per Walmart)! That's 47% OFF — you save $171.99. 💰
+✅ Price-checked find — Burberry Her by Burberry for Women 1.6 oz EDT Spray is just $50.99 (was $106.00 per Walmart)! That's 51% OFF — you save $55.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Thunderer Ranger R007 HT Highway 215/75R15 100T Light Truck Tire is just $82.07 (was $154.99 per Walmart)! That's 47% OFF — you save $72.92. 💰
+🚨 Hot markdown alert — Redsmile Playhouse for Kids Kids Playhouse with Basketball Ring Toss Play and DIY Stickers Activity Center Game House for Indoor Outdoor Gift for Girls Boys is just $139.99 (was $278.99 per Walmart)! That's 49% OFF — you save $139.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — DC Premier 6.5 Inch The Joker Action Figure Series 1 22 Articulations Chatter Teeth Weapon is just $15.86 (was $27.98 per Walmart)! That's 43% OFF — you save $12.12. 💰
+👀 Worth a serious look — Petmate Square Mattress Dog Bed Cat Bed 30 x 30 Inches Removable Machine Washable Cover Ribbed Sleep Surface Assorted is just $20.07 (was $39.99 per Walmart)! That's 49% OFF — you save $19.92. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -52,7 +52,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — 2 Pack White Zinsser Flat Bondz Maximum Adhesion Primer- Gallon is just $68.09 (was $115.67 per Walmart)! That's 41% OFF — you save $47.58. 💰
+💸 Deal of the day — Bron 24 Freestanding Bathroom Vanity in Black Oak with Black 3-Hole Centerset Sink Top is just $192.94 (was $326.72 per Walmart)! That's 40% OFF — you save $133.78. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Laifen SE Hair Dryer 105 000 RPM Ionic Blow Dryer with 3 Magnetic Attachments - Purple is just $109.99 (was $139.99 per Walmart)! That's 21% OFF — you save $30.00. 💰
+🔥 Today's steal — Hudson Baby Infant Boy Cotton Cap and Scratch Mitten Set Football 16-Piece 0-6 Months is just $13.99 (was $22.99 per Walmart)! That's 39% OFF — you save $9.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Outdoor Cloth Band Analog Watch With 3-Year Battery And Water Resistance is just $29.86 (was $37.50 per Walmart)! That's 20% OFF — you save $7.64. 💰
+✅ Price-checked find — JBL Bar 700MK2 - 7.1 channel soundbar system with detachable speakers and Dolby Atmos® - Black is just $549.95 (was $899.95 per Walmart)! That's 38% OFF — you save $350.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Best Friends by Sheri Original Calming Donut Dog and Cat Bed Lux Faux Fur Mink Dark Gray (30in x 30in) - Anxiety Relief for Pets Up to 45 lbs dropped to $37.99 (was $47.49 per Walmart) — 20% OFF!
+🔥 STEAL ALERT 🤯 Acme Furniture Dresden Sofa dropped to $2,011.99 (was $3,170.05 per Walmart) — 36% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 King Krule - Ooz - Music & Performance - Vinyl dropped to $22.19 (was $42.99 per Walmart) — 48% OFF!
+✅ PRICE CHECKED 🤯 iTOUCH AIR 5 Smartwatch – 1.85” AMOLED Display Bluetooth Calling 100+ Sport Modes Heart Rate SpO₂ Stress & Sleep Monitoring IP68 Waterproof for Android & iPhone - Magnetic Strap for Adults dropped to $37.91 (was $56.00 per Walmart) — 32% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Prominence Home Piercy 42 Bronze Ceiling Fan with 5 Blades 3 Arm Cage Light Kit Remote & Reverse Airflow dropped to $138.70 (was $210.13 per Walmart) — 34% OFF!
+🚨 PRICE DROP 🤯 Hercules Strong Guard H-MA 11R24.5 149/146K H Commercial Tire dropped to $415.07 (was $572.94 per Walmart) — 27% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Landspider Wildtraxx A/T All Terrain 275/60R20 119T XL Light Truck Tire dropped to $163.08 (was $239.99 per Walmart) — 32% OFF!
+👀 Don't sleep on this 🤯 CT7000-L-6PK Multi-Purpose Poly/Cotton Brown Jersey Gloves 6 Pair Value Pack dropped to $8.00 (was $10.00 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Best Friends by Sheri Original Calming Donut Dog and Cat Bed Lux Faux Fur Mink Dark Gray (30in x 30in) - Anxiety Relief for Pets Up to 45 lbs — $37.99 (was $47.49 per Walmart), 20% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+Acme Furniture Dresden Sofa — $2,011.99 (was $3,170.05 per Walmart), 36% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
 
@@ -145,8 +145,8 @@ Best Friends by Sheri Original Calming Donut Dog and Cat Bed Lux Faux Fur Mink D
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-King Krule - Ooz - Music & Performance - Vinyl — $22.19 (was $42.99 per Walmart), 48% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+iTOUCH AIR 5 Smartwatch – 1.85” AMOLED Display Bluetooth Calling 100+ Sport Modes Heart Rate SpO₂ Stress & Sleep Monitoring IP68 Waterproof for Android & iPhone - Magnetic Strap for Adults — $37.91 (was $56.00 per Walmart), 32% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
 
 ---
 
@@ -154,8 +154,8 @@ King Krule - Ooz - Music & Performance - Vinyl — $22.19 (was $42.99 per Walmar
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Prominence Home Piercy 42 Bronze Ceiling Fan with 5 Blades 3 Arm Cage Light Kit Remote & Reverse Airflow — $138.70 (was $210.13 per Walmart), 34% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Hercules Strong Guard H-MA 11R24.5 149/146K H Commercial Tire — $415.07 (was $572.94 per Walmart), 27% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
 
@@ -163,8 +163,8 @@ Prominence Home Piercy 42 Bronze Ceiling Fan with 5 Blades 3 Arm Cage Light Kit 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Landspider Wildtraxx A/T All Terrain 275/60R20 119T XL Light Truck Tire — $163.08 (was $239.99 per Walmart), 32% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+CT7000-L-6PK Multi-Purpose Poly/Cotton Brown Jersey Gloves 6 Pair Value Pack — $8.00 (was $10.00 per Walmart), 20% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #accessories
 
 ---
 
@@ -176,11 +176,11 @@ Landspider Wildtraxx A/T All Terrain 275/60R20 119T XL Light Truck Tire — $163
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Northlight LED Lighted Snowy Cottage House Christmas Village — $27.59 (50% off)
-2. Frigidaire 4.5 Cu. ft. Compact Fridge with Chiller Compartme — $188.00 (47% off)
-3. Thunderer Ranger R007 HT Highway 215/75R15 100T Light Truck  — $82.07 (47% off)
-4. DC Premier 6.5 Inch The Joker Action Figure Series 1 22 Arti — $15.86 (43% off)
-5. 2 Pack White Zinsser Flat Bondz Maximum Adhesion Primer- Gal — $68.09 (41% off)
+1. Disney Toy Story Women s Buzz Lightyear and Woody 11 Mini Ba — $10.80 (56% off)
+2. Burberry Her by Burberry for Women 1.6 oz EDT Spray — $50.99 (51% off)
+3. Redsmile Playhouse for Kids Kids Playhouse with Basketball R — $139.99 (49% off)
+4. Petmate Square Mattress Dog Bed Cat Bed 30 x 30 Inches Remov — $20.07 (49% off)
+5. Bron 24 Freestanding Bathroom Vanity in Black Oak with Black — $192.94 (40% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 50% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 56% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Northlight LED Lighted Snowy Cottage House C — $27.59
-2. Frigidaire 4.5 Cu. ft. Compact Fridge with C — $188.00
-3. Thunderer Ranger R007 HT Highway 215/75R15 1 — $82.07
-4. DC Premier 6.5 Inch The Joker Action Figure  — $15.86
+1. Disney Toy Story Women s Buzz Lightyear and  — $10.80
+2. Burberry Her by Burberry for Women 1.6 oz ED — $50.99
+3. Redsmile Playhouse for Kids Kids Playhouse w — $139.99
+4. Petmate Square Mattress Dog Bed Cat Bed 30 x — $20.07
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Sep 27, 2026
+# SnagDaily Instagram kit — Sep 28, 2026
 
 ## POST 1 — post_1.png
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Redsmile Playhouse for Kids Kids Playhouse with Basketball Ring Toss Play and DIY Stickers Activity Center Game House for Indoor Outdoor Gift for Girls Boys is just $139.99 (was $278.99 per Walmart)! That's 49% OFF — you save $139.00. 💰
+🚨 Hot markdown alert — DARING DIVA Women s Winter Coats Casual Button Outwear Pea Overcoat XS Beige is just $59.99 (was $122.80 per Walmart)! That's 51% OFF — you save $62.81. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Petmate Square Mattress Dog Bed Cat Bed 30 x 30 Inches Removable Machine Washable Cover Ribbed Sleep Surface Assorted is just $20.07 (was $39.99 per Walmart)! That's 49% OFF — you save $19.92. 💰
+👀 Worth a serious look — Redsmile Playhouse for Kids Kids Playhouse with Basketball Ring Toss Play and DIY Stickers Activity Center Game House for Indoor Outdoor Gift for Girls Boys is just $139.99 (was $278.99 per Walmart)! That's 49% OFF — you save $139.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Bron 24 Freestanding Bathroom Vanity in Black Oak with Black 3-Hole Centerset Sink Top is just $192.94 (was $326.72 per Walmart)! That's 40% OFF — you save $133.78. 💰
+💸 Deal of the day — SAFAVIEH Rodeo Drive Darien Abstract Area Rug Ivory/Black 8 x 10 is just $312.01 (was $555.00 per Walmart)! That's 43% OFF — you save $242.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Hudson Baby Infant Boy Cotton Cap and Scratch Mitten Set Football 16-Piece 0-6 Months is just $13.99 (was $22.99 per Walmart)! That's 39% OFF — you save $9.00. 💰
+🔥 Today's steal — Bron 24 Freestanding Bathroom Vanity in Black Oak with Black 3-Hole Centerset Sink Top is just $192.94 (was $326.72 per Walmart)! That's 40% OFF — you save $133.78. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Acme Furniture Dresden Sofa dropped to $2,011.99 (was $3,170.05 per Walmart) — 36% OFF!
+🔥 STEAL ALERT 🤯 Petmate Looped Wire 1-Door 8-Panel Indoor or Outdoor Exercise Dog Pen with Step Through Door 30 x 24 For Small to Medium Dogs Up To 50 lb Black dropped to $36.32 (was $59.36 per Walmart) — 38% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Acme Furniture Dresden Sofa — $2,011.99 (was $3,170.05 per Walmart), 36% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Petmate Looped Wire 1-Door 8-Panel Indoor or Outdoor Exercise Dog Pen with Step Through Door 30 x 24 For Small to Medium Dogs Up To 50 lb Black — $36.32 (was $59.36 per Walmart), 38% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -178,9 +178,9 @@ CT7000-L-6PK Multi-Purpose Poly/Cotton Brown Jersey Gloves 6 Pair Value Pack —
 
 1. Disney Toy Story Women s Buzz Lightyear and Woody 11 Mini Ba — $10.80 (56% off)
 2. Burberry Her by Burberry for Women 1.6 oz EDT Spray — $50.99 (51% off)
-3. Redsmile Playhouse for Kids Kids Playhouse with Basketball R — $139.99 (49% off)
-4. Petmate Square Mattress Dog Bed Cat Bed 30 x 30 Inches Remov — $20.07 (49% off)
-5. Bron 24 Freestanding Bathroom Vanity in Black Oak with Black — $192.94 (40% off)
+3. DARING DIVA Women s Winter Coats Casual Button Outwear Pea O — $59.99 (51% off)
+4. Redsmile Playhouse for Kids Kids Playhouse with Basketball R — $139.99 (49% off)
+5. SAFAVIEH Rodeo Drive Darien Abstract Area Rug Ivory/Black 8  — $312.01 (43% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -194,8 +194,8 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 1. Disney Toy Story Women s Buzz Lightyear and  — $10.80
 2. Burberry Her by Burberry for Women 1.6 oz ED — $50.99
-3. Redsmile Playhouse for Kids Kids Playhouse w — $139.99
-4. Petmate Square Mattress Dog Bed Cat Bed 30 x — $20.07
+3. DARING DIVA Women s Winter Coats Casual Butt — $59.99
+4. Redsmile Playhouse for Kids Kids Playhouse w — $139.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

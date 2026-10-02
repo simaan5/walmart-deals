@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Oct 01, 2026
+# SnagDaily Instagram kit — Oct 02, 2026
 
 ## POST 1 — post_1.png
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Fitflop Women s Delicato Wave-Edge Canvas Mary Jane Flats is just $59.99 (was $110.00 per Walmart)! That's 45% OFF — you save $50.01. 💰
+✅ Price-checked find — Northlight 18 Blue Pumpkins and Foliage Artificial Thanksgiving Half Wreath is just $47.93 (was $95.83 per Walmart)! That's 50% OFF — you save $47.90. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — SAFAVIEH Easy Care Travis Diamond Area Rug Ivory 8 x 10 is just $199.67 (was $366.00 per Walmart)! That's 45% OFF — you save $166.33. 💰
+🚨 Hot markdown alert — CookieRun: Braverse Trading Card Game - Starter Deck Green - Strategic Game Play Pack 1 Player 60 Card Set Competitive Battle TCG Deck-Building is just $12.99 (was $24.91 per Walmart)! That's 47% OFF — you save $11.92. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Dorman 929-147 Rear Leaf Spring for Specific Ford / Lincoln Models is just $243.78 (was $419.99 per Walmart)! That's 42% OFF — you save $176.21. 💰
+👀 Worth a serious look — Hudson Baby Infant Girl Cotton Rich Newborn and Terry Socks Girl Safari 0-3 Months is just $14.99 (was $28.34 per Walmart)! That's 47% OFF — you save $13.35. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Spalding Ultimate Hybrid® 60 In. Acrylic Portable Basketball Hoop System is just $968.00 (was $1,499.99 per Walmart)! That's 35% OFF — you save $531.99. 💰
+💸 Deal of the day — essie Nail Polish Swoon In The Lagoon Ripple Reflect 0.46 fl oz is just $8.91 (was $16.50 per Walmart)! That's 46% OFF — you save $7.59. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Eminence Firm Skin Acai Booster-Serum 1 oz is just $37.69 (was $56.00 per Walmart)! That's 32% OFF — you save $18.31. 💰
+🔥 Today's steal — Power Stop Rear Pair of Red Powder Coated Calipers S5420 is just $158.99 (was $292.99 per Walmart)! That's 45% OFF — you save $134.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — SAMSUNG Q-Series 5.1.2ch Wireless Dolby Atmos Soundbar with Q-Symphony HW-Q800D/ZA is just $699.00 (was $997.99 per Walmart)! That's 30% OFF — you save $298.99. 💰
+✅ Price-checked find — Fitflop Women s Delicato Wave-Edge Canvas Mary Jane Flats is just $59.99 (was $110.00 per Walmart)! That's 45% OFF — you save $50.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 LEGO Star Wars SMART Play: Throne Room Duel & A-Wing Interactive Building Toy - All-In-One Set - Reacts to How You Move and Play with a SMART Brick - Gift for Boys Girls and Kids Ages 9+ - 75427 dropped to $127.95 (was $159.99 per Walmart) — 20% OFF!
+🔥 STEAL ALERT 🤯 SAFAVIEH Easy Care Travis Diamond Area Rug Ivory 8 x 10 dropped to $199.67 (was $366.00 per Walmart) — 45% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Blue Buffalo Wilderness Natural High-Protein Adult Dog Dry Food Salmon Recipe 4.5-lb. dropped to $18.97 (was $24.99 per Walmart) — 24% OFF!
+✅ PRICE CHECKED 🤯 Rio Grande Games: Dominion: Renaissance - 12th Expansion Deck-Building Game New Kingdom Cards Projects & Artifacts Ages 13+ 2-4 Players 30 Min dropped to $35.61 (was $62.73 per Walmart) — 43% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Crocs Adult Baya Clogs dropped to $34.99 (was $49.99 per Walmart) — 30% OFF!
+🚨 PRICE DROP 🤯 Spalding Ultimate Hybrid® 60 In. Acrylic Portable Basketball Hoop System dropped to $968.00 (was $1,499.99 per Walmart) — 35% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 SAFAVIEH Classic Vintage Siofra Southwestern Area Rug Blue/Gray 8 x 10 dropped to $295.83 (was $463.00 per Walmart) — 36% OFF!
+👀 Don't sleep on this 🤯 IRIS Pet Crate Water Feeder Beige dropped to $10.00 (was $19.99 per Walmart) — 50% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-LEGO Star Wars SMART Play: Throne Room Duel & A-Wing Interactive Building Toy - All-In-One Set - Reacts to How You Move and Play with a SMART Brick - Gift for Boys Girls and Kids Ages 9+ - 75427 — $127.95 (was $159.99 per Walmart), 20% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+SAFAVIEH Easy Care Travis Diamond Area Rug Ivory 8 x 10 — $199.67 (was $366.00 per Walmart), 45% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
 
@@ -145,8 +145,8 @@ LEGO Star Wars SMART Play: Throne Room Duel & A-Wing Interactive Building Toy - 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Blue Buffalo Wilderness Natural High-Protein Adult Dog Dry Food Salmon Recipe 4.5-lb. — $18.97 (was $24.99 per Walmart), 24% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+Rio Grande Games: Dominion: Renaissance - 12th Expansion Deck-Building Game New Kingdom Cards Projects & Artifacts Ages 13+ 2-4 Players 30 Min — $35.61 (was $62.73 per Walmart), 43% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -154,8 +154,8 @@ Blue Buffalo Wilderness Natural High-Protein Adult Dog Dry Food Salmon Recipe 4.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Crocs Adult Baya Clogs — $34.99 (was $49.99 per Walmart), 30% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
+Spalding Ultimate Hybrid® 60 In. Acrylic Portable Basketball Hoop System — $968.00 (was $1,499.99 per Walmart), 35% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -163,8 +163,8 @@ Crocs Adult Baya Clogs — $34.99 (was $49.99 per Walmart), 30% off. It's #10 on
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SAFAVIEH Classic Vintage Siofra Southwestern Area Rug Blue/Gray 8 x 10 — $295.83 (was $463.00 per Walmart), 36% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+IRIS Pet Crate Water Feeder Beige — $10.00 (was $19.99 per Walmart), 50% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -177,10 +177,10 @@ SAFAVIEH Classic Vintage Siofra Southwestern Area Rug Blue/Gray 8 x 10 — $295.
 🔥 Today's Top 5 — swipe through, save for later 📌
 
 1. FurHaven Ultra Plush & Suede Gel-Top Luxe Lounger Chocolate  — $84.99 (53% off)
-2. Fitflop Women s Delicato Wave-Edge Canvas Mary Jane Flats — $59.99 (45% off)
-3. SAFAVIEH Easy Care Travis Diamond Area Rug Ivory 8 x 10 — $199.67 (45% off)
-4. Dorman 929-147 Rear Leaf Spring for Specific Ford / Lincoln  — $243.78 (42% off)
-5. Spalding Ultimate Hybrid® 60 In. Acrylic Portable Basketball — $968.00 (35% off)
+2. Northlight 18 Blue Pumpkins and Foliage Artificial Thanksgiv — $47.93 (50% off)
+3. CookieRun: Braverse Trading Card Game - Starter Deck Green - — $12.99 (47% off)
+4. Hudson Baby Infant Girl Cotton Rich Newborn and Terry Socks  — $14.99 (47% off)
+5. essie Nail Polish Swoon In The Lagoon Ripple Reflect 0.46 fl — $8.91 (46% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -193,9 +193,9 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 🔥 TODAY'S TOP DEALS — up to 53% OFF at Walmart! Which one are you grabbing? 👇
 
 1. FurHaven Ultra Plush & Suede Gel-Top Luxe Lo — $84.99
-2. Fitflop Women s Delicato Wave-Edge Canvas Ma — $59.99
-3. SAFAVIEH Easy Care Travis Diamond Area Rug I — $199.67
-4. Dorman 929-147 Rear Leaf Spring for Specific — $243.78
+2. Northlight 18 Blue Pumpkins and Foliage Arti — $47.93
+3. CookieRun: Braverse Trading Card Game - Star — $12.99
+4. Hudson Baby Infant Girl Cotton Rich Newborn  — $14.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

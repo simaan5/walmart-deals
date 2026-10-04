@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Oct 03, 2026
+# SnagDaily Instagram kit — Oct 04, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Northlight 18 Blue Pumpkins and Foliage Artificial Thanksgiving Half Wreath is just $47.93 (was $95.83 per Walmart)! That's 50% OFF — you save $47.90. 💰
+🔥 Today's steal — John Deere Men’s Flannel Sherpa Bonded Full Zip Jacket Sizes S-3XL is just $20.25 (was $44.99 per Walmart)! That's 55% OFF — you save $24.74. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — IRIS Pet Crate Water Feeder Beige is just $10.00 (was $19.99 per Walmart)! That's 50% OFF — you save $9.99. 💰
+✅ Price-checked find — TrumanPick 48 W Garage Shelving 3250LBS Heavy Duty Storage Shelves 5 Tier Adjustable Metal Shelving Rack Industrial Shelf 72 H x 24 D is just $99.99 (was $199.99 per Walmart)! That's 50% OFF — you save $100.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -28,7 +28,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — CookieRun: Braverse Trading Card Game - Starter Deck Green - Strategic Game Play Pack 1 Player 60 Card Set Competitive Battle TCG Deck-Building is just $12.99 (was $24.91 per Walmart)! That's 47% OFF — you save $11.92. 💰
+🚨 Hot markdown alert — Hudson Baby Baby Shoes Fleece Booties Medium Bear Size 0-6 Months is just $10.99 (was $19.37 per Walmart)! That's 43% OFF — you save $8.38. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Hudson Baby Infant Girl Cotton Rich Newborn and Terry Socks Girl Safari 0-3 Months is just $14.99 (was $28.34 per Walmart)! That's 47% OFF — you save $13.35. 💰
+👀 Worth a serious look — Hisense 55 U7 Mini-LED ULED 4K UHD Smart Google TV (55U7SG 2026 Model) - Hi - QLED MiniLED Native 165Hz VRR 330 HDR10+ Dolby Vision IMAX Enhanced Anti-Reflection & Glare-Free is just $748.00 (was $1,299.99 per Walmart)! That's 42% OFF — you save $551.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -52,7 +52,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Bedford Clock Collection Delphine 27 Mahogany Brown Analog Chiming Pendulum Wall Clock is just $89.99 (was $169.20 per Walmart)! That's 46% OFF — you save $79.21. 💰
+💸 Deal of the day — Baxton Studio Deance Retro-Modern Platform Bed Queen Walnut Brown is just $307.00 (was $498.99 per Walmart)! That's 38% OFF — you save $191.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — SAFAVIEH Courtyard Celinda Striped Indoor/Outdoor Area Rug Navy Blue/Beige 5 1 x 7 6 is just $73.63 (was $138.00 per Walmart)! That's 46% OFF — you save $64.37. 💰
+🔥 Today's steal — Massage and Bath Tooling Set 3pcs is just $13.19 (was $20.00 per Walmart)! That's 34% OFF — you save $6.81. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Power Stop Rear Pair of Red Powder Coated Calipers S5420 is just $158.99 (was $292.99 per Walmart)! That's 45% OFF — you save $134.00. 💰
+✅ Price-checked find — Kid Trax 12V CAT Backhoe Loader Ride-On Excavator with Working Loaders MP3 Real Sounds Ages 36 is just $198.00 (was $299.99 per Walmart)! That's 34% OFF — you save $101.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Hudson Baby Baby Shoes Fleece Booties Medium Bear Size 0-6 Months dropped to $10.99 (was $19.37 per Walmart) — 43% OFF!
+🔥 STEAL ALERT 🤯 Double Coin RT606 Ultra Premium 5-Rib Regional Steer/All-Position Commercial Radial Truck Tire - 11R22.5 16 ply dropped to $426.06 (was $594.88 per Walmart) — 28% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Rio Grande Games: Dominion: Renaissance - 12th Expansion Deck-Building Game New Kingdom Cards Projects & Artifacts Ages 13+ 2-4 Players 30 Min dropped to $35.61 (was $62.73 per Walmart) — 43% OFF!
+✅ PRICE CHECKED 🤯 8003223 Black Play Top Bird Cage by A&E Cage Company dropped to $475.99 (was $659.34 per Walmart) — 27% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 The Low-Calorie Cookbook: Healthy Satisfying Meals with 500 Calories or Less dropped to $15.10 (was $21.99 per Walmart) — 31% OFF!
+🚨 PRICE DROP 🤯 Terrain Cape Daypack 1350 Cu In Realtree Edge Polyester 19202 dropped to $24.79 (was $30.99 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 8 Flying Bat Boo Standing Halloween Gnome dropped to $36.27 (was $71.99 per Walmart) — 49% OFF!
+👀 Don't sleep on this 🤯 Hudson Baby Infant Girl Plush Animal Face Bathrobe Bows 0-9 Months dropped to $11.99 (was $22.00 per Walmart) — 45% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Hudson Baby Baby Shoes Fleece Booties Medium Bear Size 0-6 Months — $10.99 (was $19.37 per Walmart), 43% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
+Double Coin RT606 Ultra Premium 5-Rib Regional Steer/All-Position Commercial Radial Truck Tire - 11R22.5 16 ply — $426.06 (was $594.88 per Walmart), 28% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
 
@@ -145,8 +145,8 @@ Hudson Baby Baby Shoes Fleece Booties Medium Bear Size 0-6 Months — $10.99 (wa
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Rio Grande Games: Dominion: Renaissance - 12th Expansion Deck-Building Game New Kingdom Cards Projects & Artifacts Ages 13+ 2-4 Players 30 Min — $35.61 (was $62.73 per Walmart), 43% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+8003223 Black Play Top Bird Cage by A&E Cage Company — $475.99 (was $659.34 per Walmart), 27% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -154,8 +154,8 @@ Rio Grande Games: Dominion: Renaissance - 12th Expansion Deck-Building Game New 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-The Low-Calorie Cookbook: Healthy Satisfying Meals with 500 Calories or Less — $15.10 (was $21.99 per Walmart), 31% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Terrain Cape Daypack 1350 Cu In Realtree Edge Polyester 19202 — $24.79 (was $30.99 per Walmart), 20% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #accessories
 
 ---
 
@@ -163,8 +163,8 @@ The Low-Calorie Cookbook: Healthy Satisfying Meals with 500 Calories or Less —
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-8 Flying Bat Boo Standing Halloween Gnome — $36.27 (was $71.99 per Walmart), 49% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Hudson Baby Infant Girl Plush Animal Face Bathrobe Bows 0-9 Months — $11.99 (was $22.00 per Walmart), 45% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -176,11 +176,11 @@ The Low-Calorie Cookbook: Healthy Satisfying Meals with 500 Calories or Less —
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Northlight 18 Blue Pumpkins and Foliage Artificial Thanksgiv — $47.93 (50% off)
-2. IRIS Pet Crate Water Feeder Beige — $10.00 (50% off)
-3. CookieRun: Braverse Trading Card Game - Starter Deck Green - — $12.99 (47% off)
-4. Hudson Baby Infant Girl Cotton Rich Newborn and Terry Socks  — $14.99 (47% off)
-5. Bedford Clock Collection Delphine 27 Mahogany Brown Analog C — $89.99 (46% off)
+1. John Deere Men’s Flannel Sherpa Bonded Full Zip Jacket Sizes — $20.25 (55% off)
+2. TrumanPick 48 W Garage Shelving 3250LBS Heavy Duty Storage S — $99.99 (50% off)
+3. Hudson Baby Baby Shoes Fleece Booties Medium Bear Size 0-6 M — $10.99 (43% off)
+4. Hisense 55 U7 Mini-LED ULED 4K UHD Smart Google TV (55U7SG 2 — $748.00 (42% off)
+5. Baxton Studio Deance Retro-Modern Platform Bed Queen Walnut  — $307.00 (38% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 50% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 58% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Northlight 18 Blue Pumpkins and Foliage Arti — $47.93
-2. IRIS Pet Crate Water Feeder Beige — $10.00
-3. CookieRun: Braverse Trading Card Game - Star — $12.99
-4. Hudson Baby Infant Girl Cotton Rich Newborn  — $14.99
+1. John Deere Men’s Flannel Sherpa Bonded Full  — $20.25
+2. TrumanPick 48 W Garage Shelving 3250LBS Heav — $99.99
+3. Hudson Baby Baby Shoes Fleece Booties Medium — $10.99
+4. Hisense 55 U7 Mini-LED ULED 4K UHD Smart Goo — $748.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

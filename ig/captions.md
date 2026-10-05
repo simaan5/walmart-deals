@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Oct 04, 2026
+# SnagDaily Instagram kit — Oct 05, 2026
 
 ## POST 1 — post_1.png
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Hudson Baby Baby Shoes Fleece Booties Medium Bear Size 0-6 Months is just $10.99 (was $19.37 per Walmart)! That's 43% OFF — you save $8.38. 💰
+🚨 Hot markdown alert — Giorgio Women by Giorgio Beverly Hills 3 oz EDT SP is just $17.49 (was $30.67 per Walmart)! That's 43% OFF — you save $13.18. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -40,7 +40,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Hisense 55 U7 Mini-LED ULED 4K UHD Smart Google TV (55U7SG 2026 Model) - Hi - QLED MiniLED Native 165Hz VRR 330 HDR10+ Dolby Vision IMAX Enhanced Anti-Reflection & Glare-Free is just $748.00 (was $1,299.99 per Walmart)! That's 42% OFF — you save $551.99. 💰
+👀 Worth a serious look — Fraser Hill Farm 9 ft Oregon Pine Christmas Tree FFOP090-0GR is just $259.99 (was $453.90 per Walmart)! That's 42% OFF — you save $193.91. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -52,7 +52,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Baxton Studio Deance Retro-Modern Platform Bed Queen Walnut Brown is just $307.00 (was $498.99 per Walmart)! That's 38% OFF — you save $191.99. 💰
+💸 Deal of the day — Christopher Knight Home King Size Natural Wood Bed frame With Beige Upholstered Headboard and Footboard is just $326.32 (was $538.00 per Walmart)! That's 39% OFF — you save $211.68. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Massage and Bath Tooling Set 3pcs is just $13.19 (was $20.00 per Walmart)! That's 34% OFF — you save $6.81. 💰
+🔥 Today's steal — Kid Trax 12V CAT Backhoe Loader Ride-On Excavator with Working Loaders MP3 Real Sounds Ages 36 is just $198.00 (was $299.99 per Walmart)! That's 34% OFF — you save $101.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Kid Trax 12V CAT Backhoe Loader Ride-On Excavator with Working Loaders MP3 Real Sounds Ages 36 is just $198.00 (was $299.99 per Walmart)! That's 34% OFF — you save $101.99. 💰
+✅ Price-checked find — Double Coin RT606 Ultra Premium 5-Rib Regional Steer/All-Position Commercial Radial Truck Tire - 11R22.5 16 ply is just $426.06 (was $594.88 per Walmart)! That's 28% OFF — you save $168.82. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Double Coin RT606 Ultra Premium 5-Rib Regional Steer/All-Position Commercial Radial Truck Tire - 11R22.5 16 ply dropped to $426.06 (was $594.88 per Walmart) — 28% OFF!
+🔥 STEAL ALERT 🤯 8003223 Black Play Top Bird Cage by A&E Cage Company dropped to $475.99 (was $659.34 per Walmart) — 27% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 8003223 Black Play Top Bird Cage by A&E Cage Company dropped to $475.99 (was $659.34 per Walmart) — 27% OFF!
+✅ PRICE CHECKED 🤯 Josmo Boys Wingtip Oxford Lace Dress Shoes Color: Black Patent Size: 13 dropped to $22.99 (was $29.99 per Walmart) — 23% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Double Coin RT606 Ultra Premium 5-Rib Regional Steer/All-Position Commercial Radial Truck Tire - 11R22.5 16 ply — $426.06 (was $594.88 per Walmart), 28% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+8003223 Black Play Top Bird Cage by A&E Cage Company — $475.99 (was $659.34 per Walmart), 27% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -145,8 +145,8 @@ Double Coin RT606 Ultra Premium 5-Rib Regional Steer/All-Position Commercial Rad
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-8003223 Black Play Top Bird Cage by A&E Cage Company — $475.99 (was $659.34 per Walmart), 27% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+Josmo Boys Wingtip Oxford Lace Dress Shoes Color: Black Patent Size: 13 — $22.99 (was $29.99 per Walmart), 23% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
 
 ---
 
@@ -178,9 +178,9 @@ Hudson Baby Infant Girl Plush Animal Face Bathrobe Bows 0-9 Months — $11.99 (w
 
 1. John Deere Men’s Flannel Sherpa Bonded Full Zip Jacket Sizes — $20.25 (55% off)
 2. TrumanPick 48 W Garage Shelving 3250LBS Heavy Duty Storage S — $99.99 (50% off)
-3. Hudson Baby Baby Shoes Fleece Booties Medium Bear Size 0-6 M — $10.99 (43% off)
-4. Hisense 55 U7 Mini-LED ULED 4K UHD Smart Google TV (55U7SG 2 — $748.00 (42% off)
-5. Baxton Studio Deance Retro-Modern Platform Bed Queen Walnut  — $307.00 (38% off)
+3. Giorgio Women by Giorgio Beverly Hills 3 oz EDT SP — $17.49 (43% off)
+4. Fraser Hill Farm 9 ft Oregon Pine Christmas Tree FFOP090-0GR — $259.99 (42% off)
+5. Christopher Knight Home King Size Natural Wood Bed frame Wit — $326.32 (39% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -194,8 +194,8 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 1. John Deere Men’s Flannel Sherpa Bonded Full  — $20.25
 2. TrumanPick 48 W Garage Shelving 3250LBS Heav — $99.99
-3. Hudson Baby Baby Shoes Fleece Booties Medium — $10.99
-4. Hisense 55 U7 Mini-LED ULED 4K UHD Smart Goo — $748.00
+3. Giorgio Women by Giorgio Beverly Hills 3 oz  — $17.49
+4. Fraser Hill Farm 9 ft Oregon Pine Christmas  — $259.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

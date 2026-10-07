@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Oct 06, 2026
+# SnagDaily Instagram kit — Oct 07, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Juicy Couture Viva La Juicy Noir Eau De Parfum Perfume for Women 1 fl oz is just $29.95 (was $63.00 per Walmart)! That's 52% OFF — you save $33.05. 💰
+🔥 Today's steal — American Roadstar Sport AS All Season 235/55R19 105V XL Passenger Tire is just $114.06 (was $237.06 per Walmart)! That's 51% OFF — you save $123.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — The Honest Kitchen Surf & Turf Meaty Littles: Chicken & Salmon Recipe 4 oz Bag is just $12.73 (was $24.63 per Walmart)! That's 48% OFF — you save $11.90. 💰
+✅ Price-checked find — KL Studio Classics - Running Scared [BLU-RAY] is just $12.49 (was $24.95 per Walmart)! That's 49% OFF — you save $12.46. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -40,7 +40,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Christopher Knight Home King Size Natural Wood Bed frame With Beige Upholstered Headboard and Footboard is just $326.32 (was $538.00 per Walmart)! That's 39% OFF — you save $211.68. 💰
+👀 Worth a serious look — Acme Dresden EXECUTIVE WRITING DESK Bone White Finish is just $1,453.99 (was $2,713.20 per Walmart)! That's 46% OFF — you save $1,259.21. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Ben Hogan Womens Box Pleat Skort Sizes XS-XXXL is just $13.81 (was $22.00 per Walmart)! That's 37% OFF — you save $8.19. 💰
+💸 Deal of the day — K&H Pet Products Original Pet Cot House Navy Blue Medium 32 X 25 X 28 Inches is just $48.99 (was $81.00 per Walmart)! That's 39% OFF — you save $32.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Double Coin RT606 Ultra Premium 5-Rib Regional Steer/All-Position Commercial Radial Truck Tire - 11R22.5 16 ply is just $426.06 (was $594.88 per Walmart)! That's 28% OFF — you save $168.82. 💰
+🔥 Today's steal — Polytrends Laguna Hdpe All Weather Outdoor Patio Rocking Chair Weathered Wood is just $179.79 (was $294.20 per Walmart)! That's 38% OFF — you save $114.41. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — TCL 85” Class Q6LR Series QLED 4K HDR Smart Roku TV (New 2026) - High Brightness+ LED Backlight Game Accelerator 120 Motion Rate 240 with MEMC Voice Remote Control - 85Q6LR is just $748.00 (was $999.99 per Walmart)! That's 25% OFF — you save $251.99. 💰
+✅ Price-checked find — Lee® Women s Plus Ultra Lux Comfort Anywear Wide Leg Pant is just $25.10 (was $32.82 per Walmart)! That's 23% OFF — you save $7.72. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Josmo Boys Wingtip Oxford Lace Dress Shoes Color: Black Patent Size: 13 dropped to $22.99 (was $29.99 per Walmart) — 23% OFF!
+🔥 STEAL ALERT 🤯 Lola from Rio Meu Cacho Minha Vida Hydrating Shampoo for Curly Hair 16.9 fl oz dropped to $11.99 (was $15.00 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 JohnDow JDI-27DC 27-Gallon Deluxe Self-Evacuating Poly Oil Drain dropped to $917.68 (was $1,169.99 per Walmart) — 21% OFF!
+✅ PRICE CHECKED 🤯 Goodyear Winter Command Winter 225/50R17 98T XL Passenger Tire dropped to $119.92 (was $197.23 per Walmart) — 39% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Giorgio Women by Giorgio Beverly Hills 3 oz EDT SP dropped to $17.49 (was $30.67 per Walmart) — 43% OFF!
+🚨 PRICE DROP 🤯 NCT DREAM - The 3rd Album ISTJ (Photobook Version) - K-Pop CD (Virgin Music) dropped to $16.99 (was $27.59 per Walmart) — 38% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Delectables Squeeze Up Non-Seafood Chicken Variety Pack Lickable Cat Treats 0.5-oz tube 48 count dropped to $22.63 (was $28.99 per Walmart) — 21% OFF!
+👀 Don't sleep on this 🤯 eeBoo Piece & Love: Alchemist s Kitchen - 1000 Piece Puzzle - Adult Square Jigsaw 23x23 Includes Image Reference Insert High-Quality Pieces dropped to $24.99 (was $45.11 per Walmart) — 44% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Josmo Boys Wingtip Oxford Lace Dress Shoes Color: Black Patent Size: 13 — $22.99 (was $29.99 per Walmart), 23% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
+Lola from Rio Meu Cacho Minha Vida Hydrating Shampoo for Curly Hair 16.9 fl oz — $11.99 (was $15.00 per Walmart), 20% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -145,8 +145,8 @@ Josmo Boys Wingtip Oxford Lace Dress Shoes Color: Black Patent Size: 13 — $22.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-JohnDow JDI-27DC 27-Gallon Deluxe Self-Evacuating Poly Oil Drain — $917.68 (was $1,169.99 per Walmart), 21% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Goodyear Winter Command Winter 225/50R17 98T XL Passenger Tire — $119.92 (was $197.23 per Walmart), 39% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
 
@@ -154,8 +154,8 @@ JohnDow JDI-27DC 27-Gallon Deluxe Self-Evacuating Poly Oil Drain — $917.68 (wa
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Giorgio Women by Giorgio Beverly Hills 3 oz EDT SP — $17.49 (was $30.67 per Walmart), 43% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+NCT DREAM - The 3rd Album ISTJ (Photobook Version) - K-Pop CD (Virgin Music) — $16.99 (was $27.59 per Walmart), 38% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -163,8 +163,8 @@ Giorgio Women by Giorgio Beverly Hills 3 oz EDT SP — $17.49 (was $30.67 per Wa
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Delectables Squeeze Up Non-Seafood Chicken Variety Pack Lickable Cat Treats 0.5-oz tube 48 count — $22.63 (was $28.99 per Walmart), 21% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+eeBoo Piece & Love: Alchemist s Kitchen - 1000 Piece Puzzle - Adult Square Jigsaw 23x23 Includes Image Reference Insert High-Quality Pieces — $24.99 (was $45.11 per Walmart), 44% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -176,11 +176,11 @@ Delectables Squeeze Up Non-Seafood Chicken Variety Pack Lickable Cat Treats 0.5-
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Juicy Couture Viva La Juicy Noir Eau De Parfum Perfume for W — $29.95 (52% off)
-2. The Honest Kitchen Surf & Turf Meaty Littles: Chicken & Salm — $12.73 (48% off)
+1. American Roadstar Sport AS All Season 235/55R19 105V XL Pass — $114.06 (51% off)
+2. KL Studio Classics - Running Scared [BLU-RAY] — $12.49 (49% off)
 3. Teamson Kids Little Chef Memphis Wooden Play Kitchen with 16 — $62.99 (47% off)
-4. Christopher Knight Home King Size Natural Wood Bed frame Wit — $326.32 (39% off)
-5. Ben Hogan Womens Box Pleat Skort Sizes XS-XXXL — $13.81 (37% off)
+4. Acme Dresden EXECUTIVE WRITING DESK Bone White Finish — $1,453.99 (46% off)
+5. K&H Pet Products Original Pet Cot House Navy Blue Medium 32  — $48.99 (39% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 52% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 51% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Juicy Couture Viva La Juicy Noir Eau De Parf — $29.95
-2. The Honest Kitchen Surf & Turf Meaty Littles — $12.73
+1. American Roadstar Sport AS All Season 235/55 — $114.06
+2. KL Studio Classics - Running Scared [BLU-RAY — $12.49
 3. Teamson Kids Little Chef Memphis Wooden Play — $62.99
-4. Christopher Knight Home King Size Natural Wo — $326.32
+4. Acme Dresden EXECUTIVE WRITING DESK Bone Whi — $1,453.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

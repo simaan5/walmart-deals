@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Oct 08, 2026
+# SnagDaily Instagram kit — Oct 09, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — It s a 10 Miracle Moisture Shampoo 10 oz is just $12.50 (was $25.00 per Walmart)! That's 50% OFF — you save $12.50. 💰
+🔥 Today's steal — Goodyear Wrangler DuraTrac Rugged Terrain 275/55R20 113S Light Truck Tire is just $258.06 (was $502.99 per Walmart)! That's 48% OFF — you save $244.93. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Goodyear Wrangler DuraTrac Rugged Terrain 275/55R20 113S Light Truck Tire is just $258.06 (was $502.99 per Walmart)! That's 48% OFF — you save $244.93. 💰
+✅ Price-checked find — SAFAVIEH Cambrie 3-Light Modern Brass Gold Iron Chandelier is just $110.93 (was $205.00 per Walmart)! That's 45% OFF — you save $94.07. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Acme Dresden EXECUTIVE WRITING DESK Bone White Finish is just $1,453.99 (was $2,713.20 per Walmart)! That's 46% OFF — you save $1,259.21. 💰
+🚨 Hot markdown alert — Little Tikes Kids Storage Activity Table and Chair Set Multicolor is just $87.14 (was $157.99 per Walmart)! That's 44% OFF — you save $70.85. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — SAFAVIEH Cambrie 3-Light Modern Brass Gold Iron Chandelier is just $110.93 (was $205.00 per Walmart)! That's 45% OFF — you save $94.07. 💰
+👀 Worth a serious look — Christmas Time 7.5-Ft Unlit Silverado Pine White Flocked Slim Artificial Christmas Tree with Metal Stand | High Quality Realistic Foliage | Foldable for Easy Storage | Xmas Decor | CT-SV075-NLFL is just $99.99 (was $169.00 per Walmart)! That's 40% OFF — you save $69.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Little Tikes Kids Storage Activity Table and Chair Set Multicolor is just $87.14 (was $157.99 per Walmart)! That's 44% OFF — you save $70.85. 💰
+💸 Deal of the day — Pet Life ® Lightweight Adjustable and Collapsible Sporty Avalanche Dog Coat w/ Pop-out Zippered Hood is just $21.49 (was $35.09 per Walmart)! That's 38% OFF — you save $13.60. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Christmas Time 7.5-Ft Unlit Silverado Pine White Flocked Slim Artificial Christmas Tree with Metal Stand | High Quality Realistic Foliage | Foldable for Easy Storage | Xmas Decor | CT-SV075-NLFL is just $99.99 (was $169.00 per Walmart)! That's 40% OFF — you save $69.01. 💰
+🔥 Today's steal — Rodial Collagen 30% Booster Facial Drops 30ml is just $59.77 (was $95.00 per Walmart)! That's 37% OFF — you save $35.23. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — K&H Pet Products Original Pet Cot House Navy Blue Medium 32 X 25 X 28 Inches is just $48.99 (was $81.00 per Walmart)! That's 39% OFF — you save $32.01. 💰
+✅ Price-checked find — Signature Design by Ashley Skempton Counter Height Dining Table Set with Bar Stools White/Light Brown 3-Piece is just $262.00 (was $391.00 per Walmart)! That's 33% OFF — you save $129.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Goodyear Eagle Sport All-Season 245/50R18 100 V Tire dropped to $133.08 (was $279.99 per Walmart) — 52% OFF!
+🔥 STEAL ALERT 🤯 Hudson Baby Infant Girl Cotton Rich Newborn and Terry Socks Love 0-6 Months dropped to $9.31 (was $11.99 per Walmart) — 22% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Acme Furniture Sagen Glider Recliner w/Swivel Charcoal Chenille dropped to $489.99 (was $746.00 per Walmart) — 34% OFF!
+✅ PRICE CHECKED 🤯 Goodyear Eagle Sport All-Season 245/50R18 100 V Tire dropped to $133.08 (was $279.99 per Walmart) — 52% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,7 +112,7 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Polytrends Laguna Hdpe All Weather Outdoor Patio Rocking Chair Weathered Wood dropped to $179.79 (was $294.20 per Walmart) — 38% OFF!
+🚨 PRICE DROP 🤯 Safavieh Austen 17 in. Dia. Modern Round Cage Chandelier Gold Leaf dropped to $112.87 (was $218.00 per Walmart) — 48% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Goodyear Eagle Sport All-Season 245/50R18 100 V Tire — $133.08 (was $279.99 per Walmart), 52% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+Hudson Baby Infant Girl Cotton Rich Newborn and Terry Socks Love 0-6 Months — $9.31 (was $11.99 per Walmart), 22% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -145,8 +145,8 @@ Goodyear Eagle Sport All-Season 245/50R18 100 V Tire — $133.08 (was $279.99 pe
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Acme Furniture Sagen Glider Recliner w/Swivel Charcoal Chenille — $489.99 (was $746.00 per Walmart), 34% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Goodyear Eagle Sport All-Season 245/50R18 100 V Tire — $133.08 (was $279.99 per Walmart), 52% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
 
@@ -154,7 +154,7 @@ Acme Furniture Sagen Glider Recliner w/Swivel Charcoal Chenille — $489.99 (was
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Polytrends Laguna Hdpe All Weather Outdoor Patio Rocking Chair Weathered Wood — $179.79 (was $294.20 per Walmart), 38% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Safavieh Austen 17 in. Dia. Modern Round Cage Chandelier Gold Leaf — $112.87 (was $218.00 per Walmart), 48% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
@@ -176,11 +176,11 @@ Educational Insights Design and Drill Toolbox STEM Construction Toy Ages 3+ — 
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. It s a 10 Miracle Moisture Shampoo 10 oz — $12.50 (50% off)
-2. Goodyear Wrangler DuraTrac Rugged Terrain 275/55R20 113S Lig — $258.06 (48% off)
-3. Acme Dresden EXECUTIVE WRITING DESK Bone White Finish — $1,453.99 (46% off)
-4. SAFAVIEH Cambrie 3-Light Modern Brass Gold Iron Chandelier — $110.93 (45% off)
-5. Little Tikes Kids Storage Activity Table and Chair Set Multi — $87.14 (44% off)
+1. Goodyear Wrangler DuraTrac Rugged Terrain 275/55R20 113S Lig — $258.06 (48% off)
+2. SAFAVIEH Cambrie 3-Light Modern Brass Gold Iron Chandelier — $110.93 (45% off)
+3. Little Tikes Kids Storage Activity Table and Chair Set Multi — $87.14 (44% off)
+4. Christmas Time 7.5-Ft Unlit Silverado Pine White Flocked Sli — $99.99 (40% off)
+5. Pet Life ® Lightweight Adjustable and Collapsible Sporty Ava — $21.49 (38% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -192,10 +192,10 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 🔥 TODAY'S TOP DEALS — up to 52% OFF at Walmart! Which one are you grabbing? 👇
 
-1. It s a 10 Miracle Moisture Shampoo 10 oz — $12.50
-2. Goodyear Wrangler DuraTrac Rugged Terrain 27 — $258.06
-3. Acme Dresden EXECUTIVE WRITING DESK Bone Whi — $1,453.99
-4. SAFAVIEH Cambrie 3-Light Modern Brass Gold I — $110.93
+1. Goodyear Wrangler DuraTrac Rugged Terrain 27 — $258.06
+2. SAFAVIEH Cambrie 3-Light Modern Brass Gold I — $110.93
+3. Little Tikes Kids Storage Activity Table and — $87.14
+4. Christmas Time 7.5-Ft Unlit Silverado Pine W — $99.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

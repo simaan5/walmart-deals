@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Oct 10, 2026
+# SnagDaily Instagram kit — Oct 11, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Timber Tots: Gla Gla Reindeer Family - 4 Character Set Toy Figurines 1.75-2 Animal Miniatures w/ Unique Details Nature Playset Kids-Toddler 18Mo+ is just $14.99 (was $27.99 per Walmart)! That's 46% OFF — you save $13.00. 💰
+🔥 Today's steal — Hisense 65 S7 CanvasTV Series 4K Hi - QLED UHD Google Smart Art TV (65S7SG 2026 New) - 144Hz Art Mode Anti-Glare Panel Dolby Vision HDR Hi-Matte Display Frame & UltraSlim Wall Mount Included is just $899.99 (was $1,999.99 per Walmart)! That's 55% OFF — you save $1,100.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Pet Life ® Lightweight Adjustable and Collapsible Sporty Avalanche Dog Coat w/ Pop-out Zippered Hood is just $21.49 (was $35.09 per Walmart)! That's 38% OFF — you save $13.60. 💰
+✅ Price-checked find — Wonder Woman (2017) Movie 3Pc. Set is just $24.76 (was $49.99 per Walmart)! That's 50% OFF — you save $25.23. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Power King Towmax Vanguard ST225/75R15 113/108N D Trailer Tire is just $77.07 (was $120.99 per Walmart)! That's 36% OFF — you save $43.92. 💰
+🚨 Hot markdown alert — Furnibear Extendable Dining Table with Rubber Wood Legs for 4-8 People Wood Kitchen Table for Dining Room White is just $214.99 (was $419.99 per Walmart)! That's 48% OFF — you save $205.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Signature Design by Ashley Skempton Counter Height Dining Table Set with Bar Stools White/Light Brown 3-Piece is just $262.00 (was $391.00 per Walmart)! That's 33% OFF — you save $129.00. 💰
+👀 Worth a serious look — Eleanor Oliphant Tote Bag (Hardcover) is just $15.99 (was $28.98 per Walmart)! That's 44% OFF — you save $12.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Gemmy Crow in Cage Light-Up Animated Halloween Decoration - 15 in is just $37.48 (was $53.93 per Walmart)! That's 30% OFF — you save $16.45. 💰
+💸 Deal of the day — Shark FlexStyle Air Styling & Drying System Hair Dryer & Multi-Styler Curlers & Brushes HD430 Stone is just $199.99 (was $349.99 per Walmart)! That's 42% OFF — you save $150.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Tankless Elongated Bidet Toilet 1.32 GPF in White with Auto Flush Auto Open/Close Heated Seat Remote and Warm DryerDV-1S0360-V3 is just $548.00 (was $769.00 per Walmart)! That's 28% OFF — you save $221.00. 💰
+🔥 Today's steal — ACDelco #A3238C Air Filter Fits select: 2010-2017 CHEVROLET EQUINOX 2010-2017 GMC TERRAIN is just $37.78 (was $64.96 per Walmart)! That's 41% OFF — you save $27.18. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — BaBylissPRO Nano Titanium Marcel Curling Iron 1 1/4 Inch is just $39.99 (was $49.99 per Walmart)! That's 20% OFF — you save $10.00. 💰
+✅ Price-checked find — Soft Elevated Dog Sofa Bed for Large & Oversized Dogs Modern Linen Fabric Pet Couch with Armrests & Backrest Olive Green 130lbs Capacity is just $152.23 (was $259.90 per Walmart)! That's 41% OFF — you save $107.67. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 STAR WARS Micro Galaxy Squadron Dreadnaught Class All Terrain-Tactical Enforcer (AT-TE) dropped to $35.99 (was $44.97 per Walmart) — 20% OFF!
+🔥 STEAL ALERT 🤯 SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black dropped to $474.00 (was $746.24 per Walmart) — 36% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Pro: Active Woven Reflective Dog Collar - Pixel Pink - Large - 1 Adjustable 18-26 Neck Lightweight & Breathable Pet Safety Reflective Strips dropped to $13.99 (was $22.99 per Walmart) — 39% OFF!
+✅ PRICE CHECKED 🤯 Hudson Baby Infant Girl Premium Quilted Long Sleeve Sleeping Bag and Wearable Blanket Llama 0-6 Months dropped to $16.99 (was $22.99 per Walmart) — 26% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Kumho Ecsta 4X II KU22 UHP All Season 275/40ZR20 106W XL Passenger Tire dropped to $168.08 (was $232.00 per Walmart) — 27% OFF!
+🚨 PRICE DROP 🤯 TCL 55 A400U Designer Series QD-Mini LED QLED 4K Smart Google TV (New 2026) - Art Library Flush Wall Mount Included Halo Control System Local Dimming Pro High Brightness Pro - 55A400U dropped to $699.99 (was $999.99 per Walmart) — 30% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 DecMode 24 x 6 Round 3-Tier Brown Wall Shelf dropped to $56.57 (was $72.47 per Walmart) — 21% OFF!
+👀 Don't sleep on this 🤯 Disney PIXAR Cars 3 Lightning McQueen Light & Sound Ride-on Toy dropped to $52.98 (was $80.99 per Walmart) — 34% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-STAR WARS Micro Galaxy Squadron Dreadnaught Class All Terrain-Tactical Enforcer (AT-TE) — $35.99 (was $44.97 per Walmart), 20% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black — $474.00 (was $746.24 per Walmart), 36% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -145,8 +145,8 @@ STAR WARS Micro Galaxy Squadron Dreadnaught Class All Terrain-Tactical Enforcer 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Pro: Active Woven Reflective Dog Collar - Pixel Pink - Large - 1 Adjustable 18-26 Neck Lightweight & Breathable Pet Safety Reflective Strips — $13.99 (was $22.99 per Walmart), 39% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+Hudson Baby Infant Girl Premium Quilted Long Sleeve Sleeping Bag and Wearable Blanket Llama 0-6 Months — $16.99 (was $22.99 per Walmart), 26% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -154,8 +154,8 @@ Pro: Active Woven Reflective Dog Collar - Pixel Pink - Large - 1 Adjustable 18-2
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Kumho Ecsta 4X II KU22 UHP All Season 275/40ZR20 106W XL Passenger Tire — $168.08 (was $232.00 per Walmart), 27% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+TCL 55 A400U Designer Series QD-Mini LED QLED 4K Smart Google TV (New 2026) - Art Library Flush Wall Mount Included Halo Control System Local Dimming Pro High Brightness Pro - 55A400U — $699.99 (was $999.99 per Walmart), 30% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -163,8 +163,8 @@ Kumho Ecsta 4X II KU22 UHP All Season 275/40ZR20 106W XL Passenger Tire — $168
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-DecMode 24 x 6 Round 3-Tier Brown Wall Shelf — $56.57 (was $72.47 per Walmart), 21% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Disney PIXAR Cars 3 Lightning McQueen Light & Sound Ride-on Toy — $52.98 (was $80.99 per Walmart), 34% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -176,11 +176,11 @@ DecMode 24 x 6 Round 3-Tier Brown Wall Shelf — $56.57 (was $72.47 per Walmart)
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Timber Tots: Gla Gla Reindeer Family - 4 Character Set Toy F — $14.99 (46% off)
-2. Pet Life ® Lightweight Adjustable and Collapsible Sporty Ava — $21.49 (38% off)
-3. Power King Towmax Vanguard ST225/75R15 113/108N D Trailer Ti — $77.07 (36% off)
-4. Signature Design by Ashley Skempton Counter Height Dining Ta — $262.00 (33% off)
-5. Gemmy Crow in Cage Light-Up Animated Halloween Decoration -  — $37.48 (30% off)
+1. Hisense 65 S7 CanvasTV Series 4K Hi - QLED UHD Google Smart  — $899.99 (55% off)
+2. Wonder Woman (2017) Movie 3Pc. Set — $24.76 (50% off)
+3. Furnibear Extendable Dining Table with Rubber Wood Legs for  — $214.99 (48% off)
+4. Eleanor Oliphant Tote Bag (Hardcover) — $15.99 (44% off)
+5. Shark FlexStyle Air Styling & Drying System Hair Dryer & Mul — $199.99 (42% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 46% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 55% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Timber Tots: Gla Gla Reindeer Family - 4 Cha — $14.99
-2. Pet Life ® Lightweight Adjustable and Collap — $21.49
-3. Power King Towmax Vanguard ST225/75R15 113/1 — $77.07
-4. Signature Design by Ashley Skempton Counter  — $262.00
+1. Hisense 65 S7 CanvasTV Series 4K Hi - QLED U — $899.99
+2. Wonder Woman (2017) Movie 3Pc. Set — $24.76
+3. Furnibear Extendable Dining Table with Rubbe — $214.99
+4. Eleanor Oliphant Tote Bag (Hardcover) — $15.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

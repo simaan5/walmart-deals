@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Oct 11, 2026
+# SnagDaily Instagram kit — Oct 12, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Hisense 65 S7 CanvasTV Series 4K Hi - QLED UHD Google Smart Art TV (65S7SG 2026 New) - 144Hz Art Mode Anti-Glare Panel Dolby Vision HDR Hi-Matte Display Frame & UltraSlim Wall Mount Included is just $899.99 (was $1,999.99 per Walmart)! That's 55% OFF — you save $1,100.00. 💰
+🔥 Today's steal — De Longhi La Specialista Arte Pump Espresso Machine EC9255M Metal is just $499.95 (was $909.95 per Walmart)! That's 45% OFF — you save $410.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Wonder Woman (2017) Movie 3Pc. Set is just $24.76 (was $49.99 per Walmart)! That's 50% OFF — you save $25.23. 💰
+✅ Price-checked find — Eleanor Oliphant Tote Bag (Hardcover) is just $15.99 (was $28.98 per Walmart)! That's 44% OFF — you save $12.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Furnibear Extendable Dining Table with Rubber Wood Legs for 4-8 People Wood Kitchen Table for Dining Room White is just $214.99 (was $419.99 per Walmart)! That's 48% OFF — you save $205.00. 💰
+🚨 Hot markdown alert — LG 65 C6 Series 4K UHD OLED AI Smart webOS 26 TV OLED65C6PUA is just $1,499.00 (was $2,699.99 per Walmart)! That's 44% OFF — you save $1,200.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -40,7 +40,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Eleanor Oliphant Tote Bag (Hardcover) is just $15.99 (was $28.98 per Walmart)! That's 44% OFF — you save $12.99. 💰
+👀 Worth a serious look — Fossil Men s Coachman Chronograph Stainless Steel Watch CH2565 is just $76.28 (was $135.00 per Walmart)! That's 43% OFF — you save $58.72. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Shark FlexStyle Air Styling & Drying System Hair Dryer & Multi-Styler Curlers & Brushes HD430 Stone is just $199.99 (was $349.99 per Walmart)! That's 42% OFF — you save $150.00. 💰
+💸 Deal of the day — Denso 221-3161 Radiator Fits select: 2006-2012 TOYOTA RAV4 is just $160.42 (was $282.95 per Walmart)! That's 43% OFF — you save $122.53. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — ACDelco #A3238C Air Filter Fits select: 2010-2017 CHEVROLET EQUINOX 2010-2017 GMC TERRAIN is just $37.78 (was $64.96 per Walmart)! That's 41% OFF — you save $27.18. 💰
+🔥 Today's steal — Shark FlexStyle Air Styling & Drying System Hair Dryer & Multi-Styler Curlers & Brushes HD430 Stone is just $199.99 (was $349.99 per Walmart)! That's 42% OFF — you save $150.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black dropped to $474.00 (was $746.24 per Walmart) — 36% OFF!
+🔥 STEAL ALERT 🤯 Ringside Economy Championship Belt dropped to $34.99 (was $59.40 per Walmart) — 41% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Hudson Baby Infant Girl Premium Quilted Long Sleeve Sleeping Bag and Wearable Blanket Llama 0-6 Months dropped to $16.99 (was $22.99 per Walmart) — 26% OFF!
+✅ PRICE CHECKED 🤯 RM by Rebecca Minkoff Women s Heidi Tall Studded Pointy Toe Heeled Boot dropped to $65.40 (was $109.00 per Walmart) — 40% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 TCL 55 A400U Designer Series QD-Mini LED QLED 4K Smart Google TV (New 2026) - Art Library Flush Wall Mount Included Halo Control System Local Dimming Pro High Brightness Pro - 55A400U dropped to $699.99 (was $999.99 per Walmart) — 30% OFF!
+🚨 PRICE DROP 🤯 SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black dropped to $474.00 (was $746.24 per Walmart) — 36% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,7 +124,7 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Disney PIXAR Cars 3 Lightning McQueen Light & Sound Ride-on Toy dropped to $52.98 (was $80.99 per Walmart) — 34% OFF!
+👀 Don't sleep on this 🤯 Disney 6V Minnie Roadster Ride-On by Dynacraft Perfect for Ages 3 and up 1-Count dropped to $98.00 (was $148.00 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black — $474.00 (was $746.24 per Walmart), 36% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Ringside Economy Championship Belt — $34.99 (was $59.40 per Walmart), 41% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -145,8 +145,8 @@ SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Hudson Baby Infant Girl Premium Quilted Long Sleeve Sleeping Bag and Wearable Blanket Llama 0-6 Months — $16.99 (was $22.99 per Walmart), 26% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
+RM by Rebecca Minkoff Women s Heidi Tall Studded Pointy Toe Heeled Boot — $65.40 (was $109.00 per Walmart), 40% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
 
 ---
 
@@ -154,8 +154,8 @@ Hudson Baby Infant Girl Premium Quilted Long Sleeve Sleeping Bag and Wearable Bl
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-TCL 55 A400U Designer Series QD-Mini LED QLED 4K Smart Google TV (New 2026) - Art Library Flush Wall Mount Included Halo Control System Local Dimming Pro High Brightness Pro - 55A400U — $699.99 (was $999.99 per Walmart), 30% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black — $474.00 (was $746.24 per Walmart), 36% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -163,7 +163,7 @@ TCL 55 A400U Designer Series QD-Mini LED QLED 4K Smart Google TV (New 2026) - Ar
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Disney PIXAR Cars 3 Lightning McQueen Light & Sound Ride-on Toy — $52.98 (was $80.99 per Walmart), 34% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Disney 6V Minnie Roadster Ride-On by Dynacraft Perfect for Ages 3 and up 1-Count — $98.00 (was $148.00 per Walmart), 33% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
@@ -176,11 +176,11 @@ Disney PIXAR Cars 3 Lightning McQueen Light & Sound Ride-on Toy — $52.98 (was 
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Hisense 65 S7 CanvasTV Series 4K Hi - QLED UHD Google Smart  — $899.99 (55% off)
-2. Wonder Woman (2017) Movie 3Pc. Set — $24.76 (50% off)
-3. Furnibear Extendable Dining Table with Rubber Wood Legs for  — $214.99 (48% off)
-4. Eleanor Oliphant Tote Bag (Hardcover) — $15.99 (44% off)
-5. Shark FlexStyle Air Styling & Drying System Hair Dryer & Mul — $199.99 (42% off)
+1. De Longhi La Specialista Arte Pump Espresso Machine EC9255M  — $499.95 (45% off)
+2. Eleanor Oliphant Tote Bag (Hardcover) — $15.99 (44% off)
+3. LG 65 C6 Series 4K UHD OLED AI Smart webOS 26 TV OLED65C6PUA — $1,499.00 (44% off)
+4. Fossil Men s Coachman Chronograph Stainless Steel Watch CH25 — $76.28 (43% off)
+5. Denso 221-3161 Radiator Fits select: 2006-2012 TOYOTA RAV4 — $160.42 (43% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 55% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 45% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Hisense 65 S7 CanvasTV Series 4K Hi - QLED U — $899.99
-2. Wonder Woman (2017) Movie 3Pc. Set — $24.76
-3. Furnibear Extendable Dining Table with Rubbe — $214.99
-4. Eleanor Oliphant Tote Bag (Hardcover) — $15.99
+1. De Longhi La Specialista Arte Pump Espresso  — $499.95
+2. Eleanor Oliphant Tote Bag (Hardcover) — $15.99
+3. LG 65 C6 Series 4K UHD OLED AI Smart webOS 2 — $1,499.00
+4. Fossil Men s Coachman Chronograph Stainless  — $76.28
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

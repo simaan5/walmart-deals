@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Oct 12, 2026
+# SnagDaily Instagram kit — Oct 13, 2026
 
 ## POST 1 — post_1.png
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Eleanor Oliphant Tote Bag (Hardcover) is just $15.99 (was $28.98 per Walmart)! That's 44% OFF — you save $12.99. 💰
+✅ Price-checked find — LG 65 C6 Series 4K UHD OLED AI Smart webOS 26 TV OLED65C6PUA is just $1,499.00 (was $2,699.99 per Walmart)! That's 44% OFF — you save $1,200.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — LG 65 C6 Series 4K UHD OLED AI Smart webOS 26 TV OLED65C6PUA is just $1,499.00 (was $2,699.99 per Walmart)! That's 44% OFF — you save $1,200.99. 💰
+🚨 Hot markdown alert — Pet Halloween Vampire Baron Cloak Festival Cosplay Robe Pet Halloween Costume Clothes Suit for Medium and Large Cats and Dogs is just $21.64 (was $38.89 per Walmart)! That's 44% OFF — you save $17.25. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Shark FlexStyle Air Styling & Drying System Hair Dryer & Multi-Styler Curlers & Brushes HD430 Stone is just $199.99 (was $349.99 per Walmart)! That's 42% OFF — you save $150.00. 💰
+🔥 Today's steal — Ringside Economy Championship Belt is just $34.99 (was $59.40 per Walmart)! That's 41% OFF — you save $24.41. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Soft Elevated Dog Sofa Bed for Large & Oversized Dogs Modern Linen Fabric Pet Couch with Armrests & Backrest Olive Green 130lbs Capacity is just $152.23 (was $259.90 per Walmart)! That's 41% OFF — you save $107.67. 💰
+✅ Price-checked find — RM by Rebecca Minkoff Women s Heidi Tall Studded Pointy Toe Heeled Boot is just $65.40 (was $109.00 per Walmart)! That's 40% OFF — you save $43.60. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Ringside Economy Championship Belt dropped to $34.99 (was $59.40 per Walmart) — 41% OFF!
+🔥 STEAL ALERT 🤯 Solawave Wrinkle Retreat Pro Light Therapy Mask - LED Red Light Therapy Face Mask for Wrinkles & Anti-Aging 3-Min Treatment FDA Cleared dropped to $255.85 (was $389.88 per Walmart) — 34% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 RM by Rebecca Minkoff Women s Heidi Tall Studded Pointy Toe Heeled Boot dropped to $65.40 (was $109.00 per Walmart) — 40% OFF!
+✅ PRICE CHECKED 🤯 Disney 6V Minnie Roadster Ride-On by Dynacraft Perfect for Ages 3 and up 1-Count dropped to $98.00 (was $148.00 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,7 +112,7 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black dropped to $474.00 (was $746.24 per Walmart) — 36% OFF!
+🚨 PRICE DROP 🤯 Callaway Strata Right-Hand Men s 12-Piece Complete Golf Club Set Graphite Regular dropped to $359.97 (was $499.97 per Walmart) — 28% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Disney 6V Minnie Roadster Ride-On by Dynacraft Perfect for Ages 3 and up 1-Count dropped to $98.00 (was $148.00 per Walmart) — 33% OFF!
+👀 Don't sleep on this 🤯 TrueBrew Automatic Coffee Machine dropped to $499.95 (was $799.95 per Walmart) — 37% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Ringside Economy Championship Belt — $34.99 (was $59.40 per Walmart), 41% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
+Solawave Wrinkle Retreat Pro Light Therapy Mask - LED Red Light Therapy Face Mask for Wrinkles & Anti-Aging 3-Min Treatment FDA Cleared — $255.85 (was $389.88 per Walmart), 34% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -145,8 +145,8 @@ Ringside Economy Championship Belt — $34.99 (was $59.40 per Walmart), 41% off.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-RM by Rebecca Minkoff Women s Heidi Tall Studded Pointy Toe Heeled Boot — $65.40 (was $109.00 per Walmart), 40% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
+Disney 6V Minnie Roadster Ride-On by Dynacraft Perfect for Ages 3 and up 1-Count — $98.00 (was $148.00 per Walmart), 33% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -154,7 +154,7 @@ RM by Rebecca Minkoff Women s Heidi Tall Studded Pointy Toe Heeled Boot — $65.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port & Shelves Black — $474.00 (was $746.24 per Walmart), 36% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Callaway Strata Right-Hand Men s 12-Piece Complete Golf Club Set Graphite Regular — $359.97 (was $499.97 per Walmart), 28% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
@@ -163,8 +163,8 @@ SUNJOY 8x12 ft Extra-Tall Cedar Grill Gazebo with Ventilated Roof AC Power Port 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Disney 6V Minnie Roadster Ride-On by Dynacraft Perfect for Ages 3 and up 1-Count — $98.00 (was $148.00 per Walmart), 33% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+TrueBrew Automatic Coffee Machine — $499.95 (was $799.95 per Walmart), 37% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
 
@@ -177,8 +177,8 @@ Disney 6V Minnie Roadster Ride-On by Dynacraft Perfect for Ages 3 and up 1-Count
 🔥 Today's Top 5 — swipe through, save for later 📌
 
 1. De Longhi La Specialista Arte Pump Espresso Machine EC9255M  — $499.95 (45% off)
-2. Eleanor Oliphant Tote Bag (Hardcover) — $15.99 (44% off)
-3. LG 65 C6 Series 4K UHD OLED AI Smart webOS 26 TV OLED65C6PUA — $1,499.00 (44% off)
+2. LG 65 C6 Series 4K UHD OLED AI Smart webOS 26 TV OLED65C6PUA — $1,499.00 (44% off)
+3. Pet Halloween Vampire Baron Cloak Festival Cosplay Robe Pet  — $21.64 (44% off)
 4. Fossil Men s Coachman Chronograph Stainless Steel Watch CH25 — $76.28 (43% off)
 5. Denso 221-3161 Radiator Fits select: 2006-2012 TOYOTA RAV4 — $160.42 (43% off)
 
@@ -193,8 +193,8 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 🔥 TODAY'S TOP DEALS — up to 45% OFF at Walmart! Which one are you grabbing? 👇
 
 1. De Longhi La Specialista Arte Pump Espresso  — $499.95
-2. Eleanor Oliphant Tote Bag (Hardcover) — $15.99
-3. LG 65 C6 Series 4K UHD OLED AI Smart webOS 2 — $1,499.00
+2. LG 65 C6 Series 4K UHD OLED AI Smart webOS 2 — $1,499.00
+3. Pet Halloween Vampire Baron Cloak Festival C — $21.64
 4. Fossil Men s Coachman Chronograph Stainless  — $76.28
 
 🔗 All of today's deals are in my bio → @snagdailydeals

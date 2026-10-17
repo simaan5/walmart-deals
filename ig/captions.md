@@ -4,11 +4,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Precious Tails Ultra Plush Mini Tufted Velvet Round Cuddler Dog Cat Pet Bed - Small is just $15.00 (was $39.99 per Walmart)! That's 62% OFF — you save $24.99. 💰
+🔥 Today's steal — 235/60r18xl 107t Nex Winguard Winspike 3 is just $113.07 (was $220.38 per Walmart)! That's 48% OFF — you save $107.31. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — SAFAVIEH Adirondack Johna Abstract Area Rug Black/Ivory 9 x 12 is just $149.73 (was $310.00 per Walmart)! That's 51% OFF — you save $160.27. 💰
+✅ Price-checked find — K Tool International SOC 1-3/8 1/2D 6PT SHORT is just $9.97 (was $18.24 per Walmart)! That's 45% OFF — you save $8.27. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Dorman 603-5209 Front Engine Coolant Reservoir for Specific Freightliner Models is just $179.36 (was $286.98 per Walmart)! That's 37% OFF — you save $107.62. 💰
+🚨 Hot markdown alert — Deafheaven - Lonely People With Power - Music & Performance - Vinyl is just $30.87 (was $54.54 per Walmart)! That's 43% OFF — you save $23.67. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Moen Riley One-Handle High Arc Pulldown Kitchen Faucet Matte Black is just $136.99 (was $209.00 per Walmart)! That's 34% OFF — you save $72.01. 💰
+👀 Worth a serious look — Interactive 14 Baby Doll in Pink Mouse Top is just $14.16 (was $24.99 per Walmart)! That's 43% OFF — you save $10.83. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -52,7 +52,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Revlon SmoothStay 1 Coconut Oil-Infused Curling Iron Black is just $18.99 (was $28.96 per Walmart)! That's 34% OFF — you save $9.97. 💰
+💸 Deal of the day — Native Body Wash Sensitive Skin Bare Vanilla 18 FL Oz is just $11.36 (was $15.97 per Walmart)! That's 28% OFF — you save $4.61. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — LEGO Star Wars Advent Calendar 2026 - Christmas Advent Calendar for Kids Ages 6+ - Family Holiday Activity - Includes Festive Star Wars Minifigures - 75456 is just $30.00 (was $44.99 per Walmart)! That's 33% OFF — you save $14.99. 💰
+🔥 Today's steal — Sauder Trestle 5-Shelf Open Display Bookcase Mystic Oak Finish is just $190.00 (was $254.99 per Walmart)! That's 25% OFF — you save $64.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Lee Womens s Plus Stretch Relaxed Fit Straight Leg Jean is just $30.17 (was $42.00 per Walmart)! That's 28% OFF — you save $11.83. 💰
+✅ Price-checked find — Gsp Ncv12018 Gsp New Cv Axle Fits Select: 2015-2018 Dodge Journey Se 2012-2014 Dodge Avenger Se is just $88.99 (was $167.64 per Walmart)! That's 46% OFF — you save $78.65. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 HyperX OMEN 15.3 WQXGA 180Hz 2.5K IPS Gaming Laptop AMD Ryzen 9 8940HX NVIDIA GeForce RTX 5070 16GB 1TB SSD Black Windows 11 dropped to $1,799.00 (was $2,389.00 per Walmart) — 24% OFF!
+🔥 STEAL ALERT 🤯 30in. UV Resistant Artificial Christmas Pine & Pinecone Hanging Plant (Indoor/Outdoor) - Set of 3 dropped to $21.99 (was $33.05 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Majestic Pet Solid Color Rectangular Pillow Dog Bed Machine Washable Burgundy Large 36 x 48 x 8 dropped to $40.99 (was $56.99 per Walmart) — 28% OFF!
+✅ PRICE CHECKED 🤯 Rugrats: The Complete Series (DVD) dropped to $28.69 (was $49.99 per Walmart) — 42% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 ACME Denton Curio Cabinet in Cherry dropped to $1,032.42 (was $1,447.99 per Walmart) — 28% OFF!
+🚨 PRICE DROP 🤯 LEGO Star Wars Advent Calendar 2026 - Christmas Advent Calendar for Kids Ages 6+ - Family Holiday Activity - Includes Festive Star Wars Minifigures - 75456 dropped to $30.00 (was $44.99 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Gsp Ncv12018 Gsp New Cv Axle Fits Select: 2015-2018 Dodge Journey Se 2012-2014 Dodge Avenger Se dropped to $88.99 (was $167.64 per Walmart) — 46% OFF!
+👀 Don't sleep on this 🤯 Gibson Home Mariano 24 Piece Flatware Set dropped to $19.98 (was $28.49 per Walmart) — 29% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-HyperX OMEN 15.3 WQXGA 180Hz 2.5K IPS Gaming Laptop AMD Ryzen 9 8940HX NVIDIA GeForce RTX 5070 16GB 1TB SSD Black Windows 11 — $1,799.00 (was $2,389.00 per Walmart), 24% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+30in. UV Resistant Artificial Christmas Pine & Pinecone Hanging Plant (Indoor/Outdoor) - Set of 3 — $21.99 (was $33.05 per Walmart), 33% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -145,8 +145,8 @@ HyperX OMEN 15.3 WQXGA 180Hz 2.5K IPS Gaming Laptop AMD Ryzen 9 8940HX NVIDIA Ge
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Majestic Pet Solid Color Rectangular Pillow Dog Bed Machine Washable Burgundy Large 36 x 48 x 8 — $40.99 (was $56.99 per Walmart), 28% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+Rugrats: The Complete Series (DVD) — $28.69 (was $49.99 per Walmart), 42% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -154,8 +154,8 @@ Majestic Pet Solid Color Rectangular Pillow Dog Bed Machine Washable Burgundy La
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-ACME Denton Curio Cabinet in Cherry — $1,032.42 (was $1,447.99 per Walmart), 28% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+LEGO Star Wars Advent Calendar 2026 - Christmas Advent Calendar for Kids Ages 6+ - Family Holiday Activity - Includes Festive Star Wars Minifigures - 75456 — $30.00 (was $44.99 per Walmart), 33% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -163,8 +163,8 @@ ACME Denton Curio Cabinet in Cherry — $1,032.42 (was $1,447.99 per Walmart), 2
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Gsp Ncv12018 Gsp New Cv Axle Fits Select: 2015-2018 Dodge Journey Se 2012-2014 Dodge Avenger Se — $88.99 (was $167.64 per Walmart), 46% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+Gibson Home Mariano 24 Piece Flatware Set — $19.98 (was $28.49 per Walmart), 29% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
 
@@ -176,11 +176,11 @@ Gsp Ncv12018 Gsp New Cv Axle Fits Select: 2015-2018 Dodge Journey Se 2012-2014 D
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Precious Tails Ultra Plush Mini Tufted Velvet Round Cuddler  — $15.00 (62% off)
-2. SAFAVIEH Adirondack Johna Abstract Area Rug Black/Ivory 9 x  — $149.73 (51% off)
-3. Dorman 603-5209 Front Engine Coolant Reservoir for Specific  — $179.36 (37% off)
-4. Moen Riley One-Handle High Arc Pulldown Kitchen Faucet Matte — $136.99 (34% off)
-5. Revlon SmoothStay 1 Coconut Oil-Infused Curling Iron Black — $18.99 (34% off)
+1. 235/60r18xl 107t Nex Winguard Winspike 3 — $113.07 (48% off)
+2. K Tool International SOC 1-3/8 1/2D 6PT SHORT — $9.97 (45% off)
+3. Deafheaven - Lonely People With Power - Music & Performance  — $30.87 (43% off)
+4. Interactive 14 Baby Doll in Pink Mouse Top — $14.16 (43% off)
+5. Native Body Wash Sensitive Skin Bare Vanilla 18 FL Oz — $11.36 (28% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 62% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 48% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Precious Tails Ultra Plush Mini Tufted Velve — $15.00
-2. SAFAVIEH Adirondack Johna Abstract Area Rug  — $149.73
-3. Dorman 603-5209 Front Engine Coolant Reservo — $179.36
-4. Moen Riley One-Handle High Arc Pulldown Kitc — $136.99
+1. 235/60r18xl 107t Nex Winguard Winspike 3 — $113.07
+2. K Tool International SOC 1-3/8 1/2D 6PT SHOR — $9.97
+3. Deafheaven - Lonely People With Power - Musi — $30.87
+4. Interactive 14 Baby Doll in Pink Mouse Top — $14.16
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

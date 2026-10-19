@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Oct 18, 2026
+# SnagDaily Instagram kit — Oct 19, 2026
 
 ## POST 1 — post_1.png
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Ferret Nation Exterior Ramp is just $10.63 (was $24.99 per Walmart)! That's 57% OFF — you save $14.36. 💰
+✅ Price-checked find — Touched by Nature Big Girls and Youth Organic Cotton Long-Sleeve Dresses 2pk Arctic 6 Years is just $20.99 (was $41.07 per Walmart)! That's 48% OFF — you save $20.08. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Hudson Baby Infant Plush Sleeping Bag Sack Blanket Navy Stars 0-6 Months is just $15.99 (was $29.99 per Walmart)! That's 46% OFF — you save $14.00. 💰
+🚨 Hot markdown alert — BIC EasyRinse Sensitive Anti-Clogging Refillable Men s Razors With 4 Blades 1 Handle and 9 Refill Razor Cartridges is just $18.19 (was $35.42 per Walmart)! That's 48% OFF — you save $17.23. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Cremo Men s Body Wash Bourbon Vanilla Scent 32 fl oz is just $15.97 (was $29.00 per Walmart)! That's 44% OFF — you save $13.03. 💰
+👀 Worth a serious look — Goodyear Fuel Max RSA 11R22.5 144/142L G Commercial Tire is just $514.08 (was $869.06 per Walmart)! That's 40% OFF — you save $354.98. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -52,11 +52,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — The Elf on the Shelf Disney Princess Royal Slumber Party Set - Scout Elf Not Included is just $24.95 (was $44.95 per Walmart)! That's 44% OFF — you save $20.00. 💰
+💸 Deal of the day — PORKISS Queen Adjustable Bed Frame with Massage 5 Modes & 3 Intensities Zero Gravity Electric Bed Base Wireless Remote Head & Foot Incline USB Ports Underbed LED Light 3-Min Easy Assembly is just $349.00 (was $586.99 per Walmart)! That's 40% OFF — you save $237.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -64,11 +64,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Goodyear Fuel Max RSA 11R22.5 144/142L G Commercial Tire is just $514.08 (was $869.06 per Walmart)! That's 40% OFF — you save $354.98. 💰
+🔥 Today's steal — Brilliance Fine Jewelry Emerald 1.5 Carat Lab Grown Diamond Halo Engagement Ring in Sterling Silver is just $398.00 (was $648.00 per Walmart)! That's 38% OFF — you save $250.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — PORKISS Queen Adjustable Bed Frame with Massage 5 Modes & 3 Intensities Zero Gravity Electric Bed Base Wireless Remote Head & Foot Incline USB Ports Underbed LED Light 3-Min Easy Assembly is just $349.00 (was $586.99 per Walmart)! That's 40% OFF — you save $237.99. 💰
+✅ Price-checked find — MF Studio 5-Piece Outdoor Patio Dining Set with Stacking Chairs & Square Mesh Table with Umbrella Hole Black is just $319.99 (was $499.99 per Walmart)! That's 36% OFF — you save $180.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Brilliance Fine Jewelry Emerald 1.5 Carat Lab Grown Diamond Halo Engagement Ring in Sterling Silver dropped to $398.00 (was $648.00 per Walmart) — 38% OFF!
+🔥 STEAL ALERT 🤯 Disney Minnie Mouse Plastic Indoor Outdoor Playhouse with Easy Assembly dropped to $148.00 (was $229.99 per Walmart) — 35% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 MF Studio 5-Piece Outdoor Patio Dining Set with Stacking Chairs & Square Mesh Table with Umbrella Hole Black dropped to $319.99 (was $499.99 per Walmart) — 36% OFF!
+✅ PRICE CHECKED 🤯 Josmo Toddler Boys Dress Shoes Lace Up Style Black Patent 11 dropped to $19.99 (was $29.99 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Disney Minnie Mouse Plastic Indoor Outdoor Playhouse with Easy Assembly dropped to $148.00 (was $229.99 per Walmart) — 35% OFF!
+🚨 PRICE DROP 🤯 TRIXIE natura Classic Dog House Adjustable Legs Brown XXL dropped to $228.00 (was $331.67 per Walmart) — 31% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Josmo Toddler Boys Dress Shoes Lace Up Style Black Patent 11 dropped to $19.99 (was $29.99 per Walmart) — 33% OFF!
+👀 Don't sleep on this 🤯 TCL 75” Class X11L Series QLED SQD-Mini LED TV Smart Google TV (NEW 2026) - Deep Color System with Super QLED Up to LD20000 Precise Dimming Series Up to HDR10000 Peak Nits UltraThin Depth - 75X11L dropped to $2,998.00 (was $3,998.00 per Walmart) — 25% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Brilliance Fine Jewelry Emerald 1.5 Carat Lab Grown Diamond Halo Engagement Ring in Sterling Silver — $398.00 (was $648.00 per Walmart), 38% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
+Disney Minnie Mouse Plastic Indoor Outdoor Playhouse with Easy Assembly — $148.00 (was $229.99 per Walmart), 35% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -145,8 +145,8 @@ Brilliance Fine Jewelry Emerald 1.5 Carat Lab Grown Diamond Halo Engagement Ring
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-MF Studio 5-Piece Outdoor Patio Dining Set with Stacking Chairs & Square Mesh Table with Umbrella Hole Black — $319.99 (was $499.99 per Walmart), 36% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Josmo Toddler Boys Dress Shoes Lace Up Style Black Patent 11 — $19.99 (was $29.99 per Walmart), 33% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
 
 ---
 
@@ -154,8 +154,8 @@ MF Studio 5-Piece Outdoor Patio Dining Set with Stacking Chairs & Square Mesh Ta
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Disney Minnie Mouse Plastic Indoor Outdoor Playhouse with Easy Assembly — $148.00 (was $229.99 per Walmart), 35% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+TRIXIE natura Classic Dog House Adjustable Legs Brown XXL — $228.00 (was $331.67 per Walmart), 31% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -163,8 +163,8 @@ Disney Minnie Mouse Plastic Indoor Outdoor Playhouse with Easy Assembly — $148
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Josmo Toddler Boys Dress Shoes Lace Up Style Black Patent 11 — $19.99 (was $29.99 per Walmart), 33% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
+TCL 75” Class X11L Series QLED SQD-Mini LED TV Smart Google TV (NEW 2026) - Deep Color System with Super QLED Up to LD20000 Precise Dimming Series Up to HDR10000 Peak Nits UltraThin Depth - 75X11L — $2,998.00 (was $3,998.00 per Walmart), 25% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -177,10 +177,10 @@ Josmo Toddler Boys Dress Shoes Lace Up Style Black Patent 11 — $19.99 (was $29
 🔥 Today's Top 5 — swipe through, save for later 📌
 
 1. Everest 16 Stylish Rucksack Olive All Ages Unisex BP500-OLI  — $12.67 (62% off)
-2. Ferret Nation Exterior Ramp — $10.63 (57% off)
-3. Hudson Baby Infant Plush Sleeping Bag Sack Blanket Navy Star — $15.99 (46% off)
-4. Cremo Men s Body Wash Bourbon Vanilla Scent 32 fl oz — $15.97 (44% off)
-5. The Elf on the Shelf Disney Princess Royal Slumber Party Set — $24.95 (44% off)
+2. Touched by Nature Big Girls and Youth Organic Cotton Long-Sl — $20.99 (48% off)
+3. BIC EasyRinse Sensitive Anti-Clogging Refillable Men s Razor — $18.19 (48% off)
+4. Goodyear Fuel Max RSA 11R22.5 144/142L G Commercial Tire — $514.08 (40% off)
+5. PORKISS Queen Adjustable Bed Frame with Massage 5 Modes & 3  — $349.00 (40% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -193,9 +193,9 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 🔥 TODAY'S TOP DEALS — up to 62% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Everest 16 Stylish Rucksack Olive All Ages U — $12.67
-2. Ferret Nation Exterior Ramp — $10.63
-3. Hudson Baby Infant Plush Sleeping Bag Sack B — $15.99
-4. Cremo Men s Body Wash Bourbon Vanilla Scent  — $15.97
+2. Touched by Nature Big Girls and Youth Organi — $20.99
+3. BIC EasyRinse Sensitive Anti-Clogging Refill — $18.19
+4. Goodyear Fuel Max RSA 11R22.5 144/142L G Com — $514.08
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

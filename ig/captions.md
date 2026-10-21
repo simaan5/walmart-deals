@@ -1,14 +1,14 @@
-# SnagDaily Instagram kit — Oct 20, 2026
+# SnagDaily Instagram kit — Oct 21, 2026
 
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Giro Caden Mips II Adult Urban Bike Helmet - Matte Black - Size S (51–55 cm) is just $58.00 (was $119.95 per Walmart)! That's 51% OFF — you save $61.95. 💰
+🔥 Today's steal — Bloodborne - PlayStation Game Soundtrack (Black Vinyl) LP Record is just $46.59 (was $89.99 per Walmart)! That's 48% OFF — you save $43.40. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -16,11 +16,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Franklin Sports Soccer Rebounder - Tournament Steel Rebounding Net - Training - 12 x6 - Silver is just $99.99 (was $199.99 per Walmart)! That's 50% OFF — you save $100.00. 💰
+✅ Price-checked find — Jurassic World Rebirth Quetzalcoatlus Action Figure Winged Dinosaur Toy with Sound Aerial Ambush is just $94.93 (was $169.98 per Walmart)! That's 44% OFF — you save $75.05. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -28,11 +28,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Touched by Nature Big Girls and Youth Organic Cotton Long-Sleeve Dresses 2pk Arctic 6 Years is just $20.99 (was $41.07 per Walmart)! That's 48% OFF — you save $20.08. 💰
+🚨 Hot markdown alert — Atlas Paraller A/T All Terrain 265/70R18 124/121S Passenger Tire is just $149.07 (was $266.34 per Walmart)! That's 44% OFF — you save $117.27. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -40,11 +40,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Atlas Paraller A/T All Terrain 265/70R18 124/121S Passenger Tire is just $149.07 (was $266.34 per Walmart)! That's 44% OFF — you save $117.27. 💰
+👀 Worth a serious look — Multinautic Eagle Floats 36 in. x 48 in. x 8 in. Low Freeboard Foam Filled Heavy Duty Dock Float Drum is just $219.70 (was $338.99 per Walmart)! That's 35% OFF — you save $119.29. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -52,7 +52,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Frigidaire 3.0 cu. ft. Retro Upright Freezer Platinum EFRF314 is just $228.00 (was $399.99 per Walmart)! That's 43% OFF — you save $171.99. 💰
+💸 Deal of the day — Baxton Studio Kaia Mid-Century Modern Walnut Brown Finished Wood Full Size Platform Bed Frame is just $244.06 (was $351.00 per Walmart)! That's 30% OFF — you save $106.94. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
@@ -64,7 +64,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — It’s a 10 Miracle Daily Conditioner for All Hair Types 10 oz is just $15.01 (was $23.90 per Walmart)! That's 37% OFF — you save $8.89. 💰
+🔥 Today's steal — Neutrogena Sun Rescue Rehydrating Lotion 6.7oz is just $12.60 (was $17.26 per Walmart)! That's 27% OFF — you save $4.66. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Unique Moments Women s 3 Carat T.W. Round Lab Grown Diamond Tennis Bracelet Sterling Silver is just $187.74 (was $298.00 per Walmart)! That's 37% OFF — you save $110.26. 💰
+✅ Price-checked find — Zilla Pro Sol Fixtures With Timer 30 Inches is just $99.99 (was $135.25 per Walmart)! That's 26% OFF — you save $35.26. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 TRIXIE natura Classic Dog House Adjustable Legs Brown XXL dropped to $228.00 (was $331.67 per Walmart) — 31% OFF!
+🔥 STEAL ALERT 🤯 TCL S Class 2.0 Channel Sound Bar with Dolby Atmos DTS Virtual:X and Bluetooth Music Streaming - S45H dropped to $79.99 (was $129.99 per Walmart) — 38% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 TCL 75” Class X11L Series QLED SQD-Mini LED TV Smart Google TV (NEW 2026) - Deep Color System with Super QLED Up to LD20000 Precise Dimming Series Up to HDR10000 Peak Nits UltraThin Depth - 75X11L dropped to $2,998.00 (was $3,998.00 per Walmart) — 25% OFF!
+✅ PRICE CHECKED 🤯 Calico Critters Snow Leopard Family Collection of 4 Doll Figures dropped to $29.99 (was $59.99 per Walmart) — 50% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Bratz x Hello Kitty and Friends Kumi Fashion Doll with Accessories dropped to $34.97 (was $70.00 per Walmart) — 50% OFF!
+🚨 PRICE DROP 🤯 Goodyear Winter Command Winter 225/50R18 99T XL Passenger Tire dropped to $125.06 (was $221.51 per Walmart) — 43% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,7 +124,7 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 SAFAVIEH Martha Stewart Geometric Indoor/Outdoor Area Rug Ivory/Light Grey 8 x 10 dropped to $108.00 (was $274.00 per Walmart) — 60% OFF!
+👀 Don't sleep on this 🤯 Christopher Knight Home 46 H Wooden Rope Back Outdoor Bar Height Dining Chair Set of 2 Teak+Black dropped to $208.99 (was $274.99 per Walmart) — 24% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-TRIXIE natura Classic Dog House Adjustable Legs Brown XXL — $228.00 (was $331.67 per Walmart), 31% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+TCL S Class 2.0 Channel Sound Bar with Dolby Atmos DTS Virtual:X and Bluetooth Music Streaming - S45H — $79.99 (was $129.99 per Walmart), 38% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -145,8 +145,8 @@ TRIXIE natura Classic Dog House Adjustable Legs Brown XXL — $228.00 (was $331.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-TCL 75” Class X11L Series QLED SQD-Mini LED TV Smart Google TV (NEW 2026) - Deep Color System with Super QLED Up to LD20000 Precise Dimming Series Up to HDR10000 Peak Nits UltraThin Depth - 75X11L — $2,998.00 (was $3,998.00 per Walmart), 25% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Calico Critters Snow Leopard Family Collection of 4 Doll Figures — $29.99 (was $59.99 per Walmart), 50% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -154,8 +154,8 @@ TCL 75” Class X11L Series QLED SQD-Mini LED TV Smart Google TV (NEW 2026) - De
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Bratz x Hello Kitty and Friends Kumi Fashion Doll with Accessories — $34.97 (was $70.00 per Walmart), 50% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+Goodyear Winter Command Winter 225/50R18 99T XL Passenger Tire — $125.06 (was $221.51 per Walmart), 43% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
 
@@ -163,7 +163,7 @@ Bratz x Hello Kitty and Friends Kumi Fashion Doll with Accessories — $34.97 (w
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SAFAVIEH Martha Stewart Geometric Indoor/Outdoor Area Rug Ivory/Light Grey 8 x 10 — $108.00 (was $274.00 per Walmart), 60% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Christopher Knight Home 46 H Wooden Rope Back Outdoor Bar Height Dining Chair Set of 2 Teak+Black — $208.99 (was $274.99 per Walmart), 24% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
@@ -176,11 +176,11 @@ SAFAVIEH Martha Stewart Geometric Indoor/Outdoor Area Rug Ivory/Light Grey 8 x 1
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Giro Caden Mips II Adult Urban Bike Helmet - Matte Black - S — $58.00 (51% off)
-2. Franklin Sports Soccer Rebounder - Tournament Steel Reboundi — $99.99 (50% off)
-3. Touched by Nature Big Girls and Youth Organic Cotton Long-Sl — $20.99 (48% off)
-4. Atlas Paraller A/T All Terrain 265/70R18 124/121S Passenger  — $149.07 (44% off)
-5. Frigidaire 3.0 cu. ft. Retro Upright Freezer Platinum EFRF31 — $228.00 (43% off)
+1. Bloodborne - PlayStation Game Soundtrack (Black Vinyl) LP Re — $46.59 (48% off)
+2. Jurassic World Rebirth Quetzalcoatlus Action Figure Winged D — $94.93 (44% off)
+3. Atlas Paraller A/T All Terrain 265/70R18 124/121S Passenger  — $149.07 (44% off)
+4. Multinautic Eagle Floats 36 in. x 48 in. x 8 in. Low Freeboa — $219.70 (35% off)
+5. Baxton Studio Kaia Mid-Century Modern Walnut Brown Finished  — $244.06 (30% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 61% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 50% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Giro Caden Mips II Adult Urban Bike Helmet - — $58.00
-2. Franklin Sports Soccer Rebounder - Tournamen — $99.99
-3. Touched by Nature Big Girls and Youth Organi — $20.99
-4. Atlas Paraller A/T All Terrain 265/70R18 124 — $149.07
+1. Bloodborne - PlayStation Game Soundtrack (Bl — $46.59
+2. Jurassic World Rebirth Quetzalcoatlus Action — $94.93
+3. Atlas Paraller A/T All Terrain 265/70R18 124 — $149.07
+4. Multinautic Eagle Floats 36 in. x 48 in. x 8 — $219.70
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

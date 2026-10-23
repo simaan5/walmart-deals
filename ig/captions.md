@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Oct 22, 2026
+# SnagDaily Instagram kit — Oct 23, 2026
 
 ## POST 1 — post_1.png
 
@@ -16,7 +16,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Anime Heroes - Chainsaw Man - Denji & Pochita Action Figure is just $21.97 (was $39.99 per Walmart)! That's 45% OFF — you save $18.02. 💰
+✅ Price-checked find — Learning Resources Pretend & Play Teaching Cash Register Play Money for Kids Ages 3+ is just $40.59 (was $73.99 per Walmart)! That's 45% OFF — you save $33.40. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
@@ -40,7 +40,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — TCL S Class 2.0 Channel Sound Bar with Dolby Atmos DTS Virtual:X and Bluetooth Music Streaming - S45H is just $79.99 (was $129.99 per Walmart)! That's 38% OFF — you save $50.00. 💰
+👀 Worth a serious look — Nearly Natural Holiday Pine Prelit Battery Operated Garland 5.00 (Green) is just $26.07 (was $41.04 per Walmart)! That's 36% OFF — you save $14.97. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -64,7 +64,7 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Neutrogena Sun Rescue Rehydrating Lotion 6.7oz is just $12.60 (was $17.26 per Walmart)! That's 27% OFF — you save $4.66. 💰
+🔥 Today's steal — Olive & June Super Stick Mani Press-On Nails Halloween Skeleton Fingers Short Round is just $10.00 (was $12.99 per Walmart)! That's 23% OFF — you save $2.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
@@ -76,11 +76,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Hankook Dynapro evo AS (RA21) 255/45ZR20 105Y XL All-Season Tire for SUV is just $194.06 (was $358.06 per Walmart)! That's 45% OFF — you save $164.00. 💰
+✅ Price-checked find — Zoovilla Large 3 Climber Cat Pet Beds with Enclosed Canadian Hemlock is just $169.21 (was $211.50 per Walmart)! That's 20% OFF — you save $42.29. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -88,11 +88,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 schleich Horse Club - 157 PC Lakeside Mansion with Stable Playset Horse Figurines Rider Figures and Accessories for Kids Ages 5+ dropped to $106.99 (was $140.00 per Walmart) — 23% OFF!
+🔥 STEAL ALERT 🤯 Hankook Dynapro evo AS (RA21) 255/45ZR20 105Y XL All-Season Tire for SUV dropped to $194.06 (was $358.06 per Walmart) — 45% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +100,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Multinautic Eagle Floats 36 in. x 48 in. x 8 in. Low Freeboard Foam Filled Heavy Duty Dock Float Drum dropped to $219.70 (was $338.99 per Walmart) — 35% OFF!
+✅ PRICE CHECKED 🤯 Bratz 2001 Reimagined Dolls - Jade dropped to $30.00 (was $64.95 per Walmart) — 53% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +112,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Fraser Hill Farm 48-In. Grandland Artificial Holiday Wreath FFGT048W-0GR dropped to $66.06 (was $99.00 per Walmart) — 33% OFF!
+🚨 PRICE DROP 🤯 Home Comfort 5200 BTU 1500 sq. ft. Electric Infrared Portable Heater with Remote dropped to $227.61 (was $298.95 per Walmart) — 23% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +124,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 SAFAVIEH Montauk Karlene Geometric Striped Cotton Runner Rug Ivory/Anthracite 2 3 x 14 dropped to $80.98 (was $124.00 per Walmart) — 34% OFF!
+👀 Don't sleep on this 🤯 Northlight Frosted Icy Pine Christmas Tree with Jute Base - 10.5 dropped to $12.94 (was $27.13 per Walmart) — 52% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +136,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-schleich Horse Club - 157 PC Lakeside Mansion with Stable Playset Horse Figurines Rider Figures and Accessories for Kids Ages 5+ — $106.99 (was $140.00 per Walmart), 23% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+Hankook Dynapro evo AS (RA21) 255/45ZR20 105Y XL All-Season Tire for SUV — $194.06 (was $358.06 per Walmart), 45% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
 
@@ -145,8 +145,8 @@ schleich Horse Club - 157 PC Lakeside Mansion with Stable Playset Horse Figurine
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Multinautic Eagle Floats 36 in. x 48 in. x 8 in. Low Freeboard Foam Filled Heavy Duty Dock Float Drum — $219.70 (was $338.99 per Walmart), 35% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Bratz 2001 Reimagined Dolls - Jade — $30.00 (was $64.95 per Walmart), 53% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -154,8 +154,8 @@ Multinautic Eagle Floats 36 in. x 48 in. x 8 in. Low Freeboard Foam Filled Heavy
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Fraser Hill Farm 48-In. Grandland Artificial Holiday Wreath FFGT048W-0GR — $66.06 (was $99.00 per Walmart), 33% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Home Comfort 5200 BTU 1500 sq. ft. Electric Infrared Portable Heater with Remote — $227.61 (was $298.95 per Walmart), 23% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -163,8 +163,8 @@ Fraser Hill Farm 48-In. Grandland Artificial Holiday Wreath FFGT048W-0GR — $66
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SAFAVIEH Montauk Karlene Geometric Striped Cotton Runner Rug Ivory/Anthracite 2 3 x 14 — $80.98 (was $124.00 per Walmart), 34% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Northlight Frosted Icy Pine Christmas Tree with Jute Base - 10.5 — $12.94 (was $27.13 per Walmart), 52% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -177,9 +177,9 @@ SAFAVIEH Montauk Karlene Geometric Striped Cotton Runner Rug Ivory/Anthracite 2 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
 1. JL Audio 8.8-Inch M6 Marine Coaxial Speaker System Gloss Whi — $436.84 (47% off)
-2. Anime Heroes - Chainsaw Man - Denji & Pochita Action Figure — $21.97 (45% off)
+2. Learning Resources Pretend & Play Teaching Cash Register Pla — $40.59 (45% off)
 3. Comfort Glow QF4561R Electric Quartz Fireplace — $188.36 (41% off)
-4. TCL S Class 2.0 Channel Sound Bar with Dolby Atmos DTS Virtu — $79.99 (38% off)
+4. Nearly Natural Holiday Pine Prelit Battery Operated Garland  — $26.07 (36% off)
 5. Safavieh Florida Desmond Damask Shag Area Rug Smoke/Beige 6  — $191.40 (30% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
@@ -190,12 +190,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 47% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 53% OFF at Walmart! Which one are you grabbing? 👇
 
 1. JL Audio 8.8-Inch M6 Marine Coaxial Speaker  — $436.84
-2. Anime Heroes - Chainsaw Man - Denji & Pochit — $21.97
+2. Learning Resources Pretend & Play Teaching C — $40.59
 3. Comfort Glow QF4561R Electric Quartz Firepla — $188.36
-4. TCL S Class 2.0 Channel Sound Bar with Dolby — $79.99
+4. Nearly Natural Holiday Pine Prelit Battery O — $26.07
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

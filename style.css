@@ -209,6 +209,25 @@ main{display:block;min-height:50vh}
 .amz-disc,.grid-disc{font-size:13.5px;color:var(--grey);margin:0 0 16px}
 .amz-disc strong,.grid-disc strong{color:var(--ink)}
 
+/* pinned promo (brand/pinned.json) — text only: no Amazon prices / logos / images */
+.pin-wrap{padding-top:20px;padding-bottom:8px}
+.pin{display:grid;grid-template-columns:1fr auto;gap:22px 32px;align-items:center;background:#fff;border:2px solid var(--hair);border-radius:24px;padding:26px 30px;position:relative;overflow:hidden;box-shadow:0 18px 40px -28px rgba(20,32,46,.4)}
+.pin::before{content:"";position:absolute;right:-90px;top:-110px;width:300px;height:300px;border-radius:50%;background:var(--lime);opacity:.55;pointer-events:none}
+.pin>*{position:relative}
+.pin-top{display:flex;flex-wrap:wrap;align-items:center;gap:10px 14px;margin-bottom:10px}
+.pin-store{display:inline-block;background:#232F3E;color:#FF9900;font-weight:800;font-size:14px;letter-spacing:.02em;padding:6px 12px;border-radius:10px}
+.pin-kicker{font-weight:800;font-size:12.5px;letter-spacing:.14em;text-transform:uppercase;color:var(--coral-ink)}
+.pin-ad{font-weight:800;font-size:12px;letter-spacing:.06em;text-transform:uppercase;border:1.5px solid var(--ink);border-radius:6px;padding:2px 7px}
+.pin-t{font-size:clamp(24px,3.4vw,36px);line-height:1.1;letter-spacing:-.03em;margin:0 0 8px}
+.pin-b{font-size:16px;color:var(--grey);margin:0 0 12px;max-width:62ch}
+.pin-chips{display:flex;flex-wrap:wrap;gap:8px;margin:0 0 12px;padding:0;list-style:none}
+.pin-chips li{background:var(--lime);font-weight:800;font-size:13px;padding:6px 12px;border-radius:999px}
+.pin-ship{font-weight:700;font-size:14.5px;margin:0 0 10px}
+.pin-fine{font-size:13px;color:var(--grey);margin:0}
+.pin-fine strong{color:var(--ink)}
+.pin-cta{white-space:nowrap}
+@media (max-width:720px){.pin{grid-template-columns:1fr;padding:22px 20px}.pin-cta{justify-self:start}}
+
 /* disclosure banner */
 .disc-banner{font-size:13.5px;line-height:1.55;color:#3A4756;background:var(--white);border:1px solid var(--hair);border-left:4px solid var(--coral);border-radius:10px;padding:12px 16px;margin:0 0 20px}
 

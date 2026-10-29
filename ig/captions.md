@@ -1,4 +1,36 @@
-# SnagDaily Instagram kit — Oct 28, 2026
+# SnagDaily Instagram kit — Oct 29, 2026
+
+## POST 📌 — pinned1_post.png
+
+#ad CRAZY LOW DEALS ON AMAZON HAUL 🚨
+
+Amazon Haul's Crazy low page has deals by category, including $2 & under flash deals (limited time, 2 per customer). Tap through to see what's live right now.
+
+🔗 https://link.amazon/B0iUhUrOU #ad
+Free shipping on $25+
+
+As an Amazon Associate I earn from qualifying purchases.
+Checked Oct 28, 2026 — limited-time deals; availability changes fast.
+.
+#amazon #AmazonHaul
+
+---
+
+## REEL 📌 — pinned1_reel.png
+
+#ad CRAZY LOW DEALS ON AMAZON HAUL 🚨
+
+Amazon Haul's Crazy low page has deals by category, including $2 & under flash deals (limited time, 2 per customer). Tap through to see what's live right now.
+
+🔗 https://link.amazon/B0iUhUrOU #ad
+Free shipping on $25+
+
+As an Amazon Associate I earn from qualifying purchases.
+Checked Oct 28, 2026 — limited-time deals; availability changes fast.
+.
+#amazon #AmazonHaul
+
+---
 
 ## POST 1 — post_1.png
 
@@ -40,11 +72,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — SAFAVIEH Veranda Moriah Southwestern Indoor/Outdoor Area Rug 5 3 x 7 7 Green/Blue is just $93.87 (was $143.00 per Walmart)! That's 34% OFF — you save $49.13. 💰
+👀 Worth a serious look — Tranquil Hush Bath Gift Set 3 Pieces is just $13.84 (was $20.00 per Walmart)! That's 30% OFF — you save $6.16. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -52,11 +84,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Equal-i-zer 90001201 Equalizer Hitch (No Shank) is just $592.95 (was $750.00 per Walmart)! That's 20% OFF — you save $157.05. 💰
+💸 Deal of the day — Gen7Pets Natural-Step Turf Pet Ramp Convinient and Lightweight for Vehicles for Pets Dogs Green 72 L x 16 W is just $99.99 (was $136.26 per Walmart)! That's 26% OFF — you save $36.27. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -64,11 +96,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Best Friends by Sheri Calming Polyester Dog Bed Brown is just $87.96 (was $109.95 per Walmart)! That's 20% OFF — you save $21.99. 💰
+🔥 Today's steal — AirCat 1/2 VIBROTHERM DRIVE Composite Impact Wrench is just $212.22 (was $288.00 per Walmart)! That's 26% OFF — you save $75.78. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -76,11 +108,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Giro Manifest Spherical Adult Dirt Bike Helmet - Matte Charcoal Rush - Size L (59–63 cm) is just $128.00 (was $279.95 per Walmart)! That's 54% OFF — you save $151.95. 💰
+✅ Price-checked find — Equal-i-zer 90001201 Equalizer Hitch (No Shank) is just $592.95 (was $750.00 per Walmart)! That's 20% OFF — you save $157.05. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -88,11 +120,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 SAFAVIEH Faux 30 Inch Red Berry & Pine Led Wreath Deep Red/Green dropped to $52.69 (was $75.00 per Walmart) — 29% OFF!
+🔥 STEAL ALERT 🤯 Giro Manifest Spherical Adult Dirt Bike Helmet - Matte Charcoal Rush - Size L (59–63 cm) dropped to $128.00 (was $279.95 per Walmart) — 54% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +132,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Modway Paisley Tufted King and California King Faux Leather Headboard in Black dropped to $207.28 (was $560.00 per Walmart) — 63% OFF!
+✅ PRICE CHECKED 🤯 Black Sabbath - Mob Rules (Deluxe Edition) (2CD) - Music & Performance - CD dropped to $13.94 (was $24.98 per Walmart) — 44% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -112,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Safavieh Outdoor Valencia 6.5ft Crank Beach Umbrella Ivory dropped to $75.59 (was $118.00 per Walmart) — 35% OFF!
+🚨 PRICE DROP 🤯 Furniture of America Jares Adult Transitional 2-Drawer Nightstand with USB Port Rustic Oak dropped to $358.00 (was $454.52 per Walmart) — 21% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -124,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 FEL-PRO HS 9627 PT-3 Head Gasket Set dropped to $86.99 (was $130.25 per Walmart) — 33% OFF!
+👀 Don't sleep on this 🤯 Best Friends by Sheri Calming Polyester Dog Bed Brown dropped to $87.96 (was $109.95 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SAFAVIEH Faux 30 Inch Red Berry & Pine Led Wreath Deep Red/Green — $52.69 (was $75.00 per Walmart), 29% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Giro Manifest Spherical Adult Dirt Bike Helmet - Matte Charcoal Rush - Size L (59–63 cm) — $128.00 (was $279.95 per Walmart), 54% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -145,8 +177,8 @@ SAFAVIEH Faux 30 Inch Red Berry & Pine Led Wreath Deep Red/Green — $52.69 (was
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Modway Paisley Tufted King and California King Faux Leather Headboard in Black — $207.28 (was $560.00 per Walmart), 63% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Black Sabbath - Mob Rules (Deluxe Edition) (2CD) - Music & Performance - CD — $13.94 (was $24.98 per Walmart), 44% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -154,8 +186,8 @@ Modway Paisley Tufted King and California King Faux Leather Headboard in Black �
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Safavieh Outdoor Valencia 6.5ft Crank Beach Umbrella Ivory — $75.59 (was $118.00 per Walmart), 35% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Furniture of America Jares Adult Transitional 2-Drawer Nightstand with USB Port Rustic Oak — $358.00 (was $454.52 per Walmart), 21% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
 
@@ -163,8 +195,8 @@ Safavieh Outdoor Valencia 6.5ft Crank Beach Umbrella Ivory — $75.59 (was $118.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-FEL-PRO HS 9627 PT-3 Head Gasket Set — $86.99 (was $130.25 per Walmart), 33% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+Best Friends by Sheri Calming Polyester Dog Bed Brown — $87.96 (was $109.95 per Walmart), 20% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -179,8 +211,8 @@ FEL-PRO HS 9627 PT-3 Head Gasket Set — $86.99 (was $130.25 per Walmart), 33% o
 1. Educational Insights PYXEL A Coder’s Best Friend Coding & ST — $79.04 (47% off)
 2. The Nun (4K Ultra HD + Blu-ray) [UHD] — $14.99 (46% off)
 3. Crosley Furniture Joanna 4-Piece Ladder-Back Dining Chair Se — $345.87 (40% off)
-4. SAFAVIEH Veranda Moriah Southwestern Indoor/Outdoor Area Rug — $93.87 (34% off)
-5. Equal-i-zer 90001201 Equalizer Hitch (No Shank) — $592.95 (20% off)
+4. Tranquil Hush Bath Gift Set 3 Pieces — $13.84 (30% off)
+5. Gen7Pets Natural-Step Turf Pet Ramp Convinient and Lightweig — $99.99 (26% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -190,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 63% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 54% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Educational Insights PYXEL A Coder’s Best Fr — $79.04
 2. The Nun (4K Ultra HD + Blu-ray) [UHD] — $14.99
 3. Crosley Furniture Joanna 4-Piece Ladder-Back — $345.87
-4. SAFAVIEH Veranda Moriah Southwestern Indoor/ — $93.87
+4. Tranquil Hush Bath Gift Set 3 Pieces — $13.84
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

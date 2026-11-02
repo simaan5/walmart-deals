@@ -1,5 +1,37 @@
 # SnagDaily Instagram kit — Nov 2, 2026
 
+## POST 📌 — pinned1_post.png
+
+#ad CRAZY LOW DEALS ON AMAZON HAUL 🚨
+
+Amazon Haul's Crazy low page has deals by category, including $2 & under flash deals (limited time, 2 per customer). Tap through to see what's live right now.
+
+🔗 https://link.amazon/B0iUhUrOU #ad
+Free shipping on $25+
+
+As an Amazon Associate I earn from qualifying purchases.
+Checked Oct 28, 2026 — limited-time deals; availability changes fast.
+.
+#amazon #AmazonHaul
+
+---
+
+## REEL 📌 — pinned1_reel.png
+
+#ad CRAZY LOW DEALS ON AMAZON HAUL 🚨
+
+Amazon Haul's Crazy low page has deals by category, including $2 & under flash deals (limited time, 2 per customer). Tap through to see what's live right now.
+
+🔗 https://link.amazon/B0iUhUrOU #ad
+Free shipping on $25+
+
+As an Amazon Associate I earn from qualifying purchases.
+Checked Oct 28, 2026 — limited-time deals; availability changes fast.
+.
+#amazon #AmazonHaul
+
+---
+
 ## POST 1 — post_1.png
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
@@ -64,11 +96,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — White Mark Women s 2 Piece Top & Shorts Lounge Set is just $27.02 (was $45.84 per Walmart)! That's 41% OFF — you save $18.82. 💰
+🔥 Today's steal — Calvin Klein Women Eau De Parfum Perfume For Women 3.4 Oz is just $52.58 (was $90.92 per Walmart)! That's 42% OFF — you save $38.34. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -76,11 +108,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — EcoFlow River 3 Plus 270 Portable Power Station 268Wh LiFePO4 Battery 3 Up to 1200W AC Outlets <10 MS UPS Expandable to 840Wh 1Hr Fast Charge <30dB Ultra-Quiet Solar Generator for Camping/RV is just $239.00 (was $399.00 per Walmart)! That's 40% OFF — you save $160.00. 💰
+✅ Price-checked find — Hudson Baby Plush Bathrobe and Toy Set Scuba Duck One Size is just $21.99 (was $36.99 per Walmart)! That's 40% OFF — you save $15.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -88,11 +120,11 @@
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones Black dropped to $219.00 (was $359.00 per Walmart) — 39% OFF!
+🔥 STEAL ALERT 🤯 EcoFlow River 3 Plus 270 Portable Power Station 268Wh LiFePO4 Battery 3 Up to 1200W AC Outlets <10 MS UPS Expandable to 840Wh 1Hr Fast Charge <30dB Ultra-Quiet Solar Generator for Camping/RV dropped to $239.00 (was $399.00 per Walmart) — 40% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -100,11 +132,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Juicy Couture Rock The Rainbow It s Sunny Hunny Eau De Toilette Spray Perfume for Women 2.5 fl oz dropped to $29.99 (was $49.00 per Walmart) — 38% OFF!
+✅ PRICE CHECKED 🤯 Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones Black dropped to $219.00 (was $359.00 per Walmart) — 39% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -136,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones Black — $219.00 (was $359.00 per Walmart), 39% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+EcoFlow River 3 Plus 270 Portable Power Station 268Wh LiFePO4 Battery 3 Up to 1200W AC Outlets <10 MS UPS Expandable to 840Wh 1Hr Fast Charge <30dB Ultra-Quiet Solar Generator for Camping/RV — $239.00 (was $399.00 per Walmart), 40% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -145,8 +177,8 @@ Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones B
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Juicy Couture Rock The Rainbow It s Sunny Hunny Eau De Toilette Spray Perfume for Women 2.5 fl oz — $29.99 (was $49.00 per Walmart), 38% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones Black — $219.00 (was $359.00 per Walmart), 39% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 

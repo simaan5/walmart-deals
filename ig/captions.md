@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 2, 2026
+# SnagDaily Instagram kit — Nov 3, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -36,11 +36,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Leao Lion Sport AT All Terrain 265/75R16 116T Light Truck Tire is just $108.08 (was $214.99 per Walmart)! That's 49% OFF — you save $106.91. 💰
+🔥 Today's steal — BTS Beyond The Scene Long Sleeved T-Shirt (White) - Medium (Official Merchandise) is just $19.16 (was $55.00 per Walmart)! That's 65% OFF — you save $35.84. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -48,11 +48,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Best Friends by Sheri Original Calming Donut Dog Bed Gray Medium 30 is just $57.72 (was $109.95 per Walmart)! That's 47% OFF — you save $52.23. 💰
+✅ Price-checked find — Leao Lion Sport AT All Terrain 265/75R16 116T Light Truck Tire is just $108.08 (was $214.99 per Walmart)! That's 49% OFF — you save $106.91. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Euroco Full Size Wood Daybed with Trundle and Storage Shelves Gray is just $226.77 (was $430.00 per Walmart)! That's 47% OFF — you save $203.23. 💰
+🚨 Hot markdown alert — Best Friends by Sheri Original Calming Donut Dog Bed Gray Medium 30 is just $57.72 (was $109.95 per Walmart)! That's 47% OFF — you save $52.23. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -72,11 +72,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — FitFlop Women s WORK+ High Performance Professional EVA Clogs is just $39.99 (was $75.00 per Walmart)! That's 46% OFF — you save $35.01. 💰
+👀 Worth a serious look — Euroco Full Size Wood Daybed with Trundle and Storage Shelves Gray is just $226.77 (was $430.00 per Walmart)! That's 47% OFF — you save $203.23. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — KidKraft Uptown Pastel Wooden Play Kitchen with Chalkboard Play Phone and See-Through Doors is just $127.49 (was $222.04 per Walmart)! That's 42% OFF — you save $94.55. 💰
+💸 Deal of the day — FitFlop Women s WORK+ High Performance Professional EVA Clogs is just $39.99 (was $75.00 per Walmart)! That's 46% OFF — you save $35.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Calvin Klein Women Eau De Parfum Perfume For Women 3.4 Oz is just $52.58 (was $90.92 per Walmart)! That's 42% OFF — you save $38.34. 💰
+🔥 Today's steal — KidKraft Uptown Pastel Wooden Play Kitchen with Chalkboard Play Phone and See-Through Doors is just $127.49 (was $222.04 per Walmart)! That's 42% OFF — you save $94.55. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Hudson Baby Plush Bathrobe and Toy Set Scuba Duck One Size is just $21.99 (was $36.99 per Walmart)! That's 40% OFF — you save $15.00. 💰
+✅ Price-checked find — Calvin Klein Women Eau De Parfum Perfume For Women 3.4 Oz is just $52.58 (was $90.92 per Walmart)! That's 42% OFF — you save $38.34. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Grumpy Monkey Tote Bag (Hardcover) dropped to $22.00 (was $31.40 per Walmart) — 29% OFF!
+🚨 PRICE DROP 🤯 Corona Men’s Allover Print Swim Shorts Size M dropped to $11.99 (was $19.98 per Walmart) — 40% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -186,8 +186,8 @@ Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones B
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Grumpy Monkey Tote Bag (Hardcover) — $22.00 (was $31.40 per Walmart), 29% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #accessories
+Corona Men’s Allover Print Swim Shorts Size M — $11.99 (was $19.98 per Walmart), 40% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -208,11 +208,11 @@ Simpson Racing MGMW Magnata Gloves White/Blue Medium - Pair — $127.14 (was $20
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Leao Lion Sport AT All Terrain 265/75R16 116T Light Truck Ti — $108.08 (49% off)
-2. Best Friends by Sheri Original Calming Donut Dog Bed Gray Me — $57.72 (47% off)
-3. Euroco Full Size Wood Daybed with Trundle and Storage Shelve — $226.77 (47% off)
-4. FitFlop Women s WORK+ High Performance Professional EVA Clog — $39.99 (46% off)
-5. KidKraft Uptown Pastel Wooden Play Kitchen with Chalkboard P — $127.49 (42% off)
+1. BTS Beyond The Scene Long Sleeved T-Shirt (White) - Medium ( — $19.16 (65% off)
+2. Leao Lion Sport AT All Terrain 265/75R16 116T Light Truck Ti — $108.08 (49% off)
+3. Best Friends by Sheri Original Calming Donut Dog Bed Gray Me — $57.72 (47% off)
+4. Euroco Full Size Wood Daybed with Trundle and Storage Shelve — $226.77 (47% off)
+5. FitFlop Women s WORK+ High Performance Professional EVA Clog — $39.99 (46% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -222,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 50% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 65% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Leao Lion Sport AT All Terrain 265/75R16 116 — $108.08
-2. Best Friends by Sheri Original Calming Donut — $57.72
-3. Euroco Full Size Wood Daybed with Trundle an — $226.77
-4. FitFlop Women s WORK+ High Performance Profe — $39.99
+1. BTS Beyond The Scene Long Sleeved T-Shirt (W — $19.16
+2. Leao Lion Sport AT All Terrain 265/75R16 116 — $108.08
+3. Best Friends by Sheri Original Calming Donut — $57.72
+4. Euroco Full Size Wood Daybed with Trundle an — $226.77
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

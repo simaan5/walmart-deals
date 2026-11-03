@@ -8,6 +8,12 @@
 - https://snagdaily.com/how-we-pick-deals.html: How deals are sourced, filtered and ranked
 - https://snagdaily.com/faq.html: FAQ: affiliate links, price freshness, saved deals
 - https://snagdaily.com/categories.html: Shop deals by category
+- https://snagdaily.com/this-week.html: This week's best verified Walmart deals, each with its price date and live/ended status
+- https://snagdaily.com/walmart-home-deals.html: Walmart Home deals — dated prices, live grid, buying guidance
+- https://snagdaily.com/walmart-tools-deals.html: Walmart Tools & DIY deals — dated prices, live grid, buying guidance
+- https://snagdaily.com/walmart-toys-deals.html: Walmart Toys deals — dated prices, live grid, buying guidance
+- https://snagdaily.com/walmart-electronics-deals.html: Walmart Electronics deals — dated prices, live grid, buying guidance
+- https://snagdaily.com/walmart-automotive-deals.html: Walmart Automotive deals — dated prices, live grid, buying guidance
 - https://snagdaily.com/black-friday.html: Black Friday 2026 hub — Walmart, Amazon, Target, Best Buy dates with sources, verified Walmart deals
 - https://snagdaily.com/walmart-plus.html: Is Walmart+ worth it — honest breakdown
 - https://snagdaily.com/how-to-spot-a-fake-discount.html: Guide: spotting inflated reference prices

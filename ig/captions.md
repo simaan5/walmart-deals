@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 3, 2026
+# SnagDaily Instagram kit — Nov 4, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -36,11 +36,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — BTS Beyond The Scene Long Sleeved T-Shirt (White) - Medium (Official Merchandise) is just $19.16 (was $55.00 per Walmart)! That's 65% OFF — you save $35.84. 💰
+🔥 Today's steal — Too Fast for Love (Deluxe 45th Anniversary Edition) is just $77.13 (was $179.99 per Walmart)! That's 57% OFF — you save $102.86. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -48,7 +48,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Leao Lion Sport AT All Terrain 265/75R16 116T Light Truck Tire is just $108.08 (was $214.99 per Walmart)! That's 49% OFF — you save $106.91. 💰
+✅ Price-checked find — K Source Custom Fit Towing Mirror Pair - Cadillac Escalade Chevrolet Suburban/ Tahoe GMC Yukon - 80950 is just $69.93 (was $121.93 per Walmart)! That's 42% OFF — you save $52.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Best Friends by Sheri Original Calming Donut Dog Bed Gray Medium 30 is just $57.72 (was $109.95 per Walmart)! That's 47% OFF — you save $52.23. 💰
+🚨 Hot markdown alert — Calvin Klein Women Eau De Parfum Perfume For Women 3.4 Oz is just $52.58 (was $90.92 per Walmart)! That's 42% OFF — you save $38.34. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -72,7 +72,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Euroco Full Size Wood Daybed with Trundle and Storage Shelves Gray is just $226.77 (was $430.00 per Walmart)! That's 47% OFF — you save $203.23. 💰
+👀 Worth a serious look — SAFAVIEH Aspen Emmalyn Oriental Area Rug Ivory/Blue 10 x 14 is just $554.85 (was $909.00 per Walmart)! That's 39% OFF — you save $354.15. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — FitFlop Women s WORK+ High Performance Professional EVA Clogs is just $39.99 (was $75.00 per Walmart)! That's 46% OFF — you save $35.01. 💰
+💸 Deal of the day — Best Friends by Sheri Original Calming Donut Dog Bed Taupe Large 36 is just $69.99 (was $109.95 per Walmart)! That's 36% OFF — you save $39.96. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — KidKraft Uptown Pastel Wooden Play Kitchen with Chalkboard Play Phone and See-Through Doors is just $127.49 (was $222.04 per Walmart)! That's 42% OFF — you save $94.55. 💰
+🔥 Today's steal — Marcy Recumbent Exercise Bike: ME-709 is just $159.99 (was $249.99 per Walmart)! That's 36% OFF — you save $90.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Calvin Klein Women Eau De Parfum Perfume For Women 3.4 Oz is just $52.58 (was $90.92 per Walmart)! That's 42% OFF — you save $38.34. 💰
+✅ Price-checked find — LEGO Icons NASA Artemis Space Launch System Buildable Space Gift for Adults DIY Project for Adults 10341 is just $259.99 (was $349.99 per Walmart)! That's 25% OFF — you save $90.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -120,11 +120,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 EcoFlow River 3 Plus 270 Portable Power Station 268Wh LiFePO4 Battery 3 Up to 1200W AC Outlets <10 MS UPS Expandable to 840Wh 1Hr Fast Charge <30dB Ultra-Quiet Solar Generator for Camping/RV dropped to $239.00 (was $399.00 per Walmart) — 40% OFF!
+🔥 STEAL ALERT 🤯 Official FIFA World Cup 26 Drib Insulated Water Bottle – Dallas Edition 24oz dropped to $14.99 (was $19.99 per Walmart) — 25% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -132,11 +132,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones Black dropped to $219.00 (was $359.00 per Walmart) — 39% OFF!
+✅ PRICE CHECKED 🤯 McHugs: Plush Bag Charm - Juicy Cheese Burger - Brown-Red Stuffed Food Character Clip Keychain Backpack Ornament Travel Accessory Companion Kids 3+ dropped to $22.99 (was $28.99 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Corona Men’s Allover Print Swim Shorts Size M dropped to $11.99 (was $19.98 per Walmart) — 40% OFF!
+🚨 PRICE DROP 🤯 16.54 Inch Floating Potion Cauldron with Green Mist for Halloween Decor dropped to $48.36 (was $109.56 per Walmart) — 55% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,7 +156,7 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Simpson Racing MGMW Magnata Gloves White/Blue Medium - Pair dropped to $127.14 (was $209.05 per Walmart) — 39% OFF!
+👀 Don't sleep on this 🤯 PowerStop Front Z23 Evolution Sport Carbon-Fiber Ceramic Brake Pad and Drilled & Slotted Rotor Kit Fits: HYUNDAI KIA Select Models K8011 dropped to $200.99 (was $288.62 per Walmart) — 30% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -168,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-EcoFlow River 3 Plus 270 Portable Power Station 268Wh LiFePO4 Battery 3 Up to 1200W AC Outlets <10 MS UPS Expandable to 840Wh 1Hr Fast Charge <30dB Ultra-Quiet Solar Generator for Camping/RV — $239.00 (was $399.00 per Walmart), 40% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Official FIFA World Cup 26 Drib Insulated Water Bottle – Dallas Edition 24oz — $14.99 (was $19.99 per Walmart), 25% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -177,8 +177,8 @@ EcoFlow River 3 Plus 270 Portable Power Station 268Wh LiFePO4 Battery 3 Up to 12
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones Black — $219.00 (was $359.00 per Walmart), 39% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+McHugs: Plush Bag Charm - Juicy Cheese Burger - Brown-Red Stuffed Food Character Clip Keychain Backpack Ornament Travel Accessory Companion Kids 3+ — $22.99 (was $28.99 per Walmart), 20% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
 
 ---
 
@@ -186,8 +186,8 @@ Bose QuietComfort Headphones II Bluetooth Over Ear Noise Cancelling Headphones B
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Corona Men’s Allover Print Swim Shorts Size M — $11.99 (was $19.98 per Walmart), 40% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
+16.54 Inch Floating Potion Cauldron with Green Mist for Halloween Decor — $48.36 (was $109.56 per Walmart), 55% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -195,7 +195,7 @@ Corona Men’s Allover Print Swim Shorts Size M — $11.99 (was $19.98 per Walma
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Simpson Racing MGMW Magnata Gloves White/Blue Medium - Pair — $127.14 (was $209.05 per Walmart), 39% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+PowerStop Front Z23 Evolution Sport Carbon-Fiber Ceramic Brake Pad and Drilled & Slotted Rotor Kit Fits: HYUNDAI KIA Select Models K8011 — $200.99 (was $288.62 per Walmart), 30% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
@@ -208,11 +208,11 @@ Simpson Racing MGMW Magnata Gloves White/Blue Medium - Pair — $127.14 (was $20
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. BTS Beyond The Scene Long Sleeved T-Shirt (White) - Medium ( — $19.16 (65% off)
-2. Leao Lion Sport AT All Terrain 265/75R16 116T Light Truck Ti — $108.08 (49% off)
-3. Best Friends by Sheri Original Calming Donut Dog Bed Gray Me — $57.72 (47% off)
-4. Euroco Full Size Wood Daybed with Trundle and Storage Shelve — $226.77 (47% off)
-5. FitFlop Women s WORK+ High Performance Professional EVA Clog — $39.99 (46% off)
+1. Too Fast for Love (Deluxe 45th Anniversary Edition) — $77.13 (57% off)
+2. K Source Custom Fit Towing Mirror Pair - Cadillac Escalade C — $69.93 (42% off)
+3. Calvin Klein Women Eau De Parfum Perfume For Women 3.4 Oz — $52.58 (42% off)
+4. SAFAVIEH Aspen Emmalyn Oriental Area Rug Ivory/Blue 10 x 14 — $554.85 (39% off)
+5. Best Friends by Sheri Original Calming Donut Dog Bed Taupe L — $69.99 (36% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -222,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 65% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 57% OFF at Walmart! Which one are you grabbing? 👇
 
-1. BTS Beyond The Scene Long Sleeved T-Shirt (W — $19.16
-2. Leao Lion Sport AT All Terrain 265/75R16 116 — $108.08
-3. Best Friends by Sheri Original Calming Donut — $57.72
-4. Euroco Full Size Wood Daybed with Trundle an — $226.77
+1. Too Fast for Love (Deluxe 45th Anniversary E — $77.13
+2. K Source Custom Fit Towing Mirror Pair - Cad — $69.93
+3. Calvin Klein Women Eau De Parfum Perfume For — $52.58
+4. SAFAVIEH Aspen Emmalyn Oriental Area Rug Ivo — $554.85
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

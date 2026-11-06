@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 5, 2026
+# SnagDaily Instagram kit — Nov 6, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -48,11 +48,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Foster s Home For Imaginary Friends: The Complete Series (DVD) is just $34.99 (was $79.99 per Walmart)! That's 56% OFF — you save $45.00. 💰
+✅ Price-checked find — Super7 Invincible 7 DELUXE Thragg Grand Regent Collectible Action Figure is just $29.97 (was $62.09 per Walmart)! That's 51% OFF — you save $32.12. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — LEGO DUPLO Town Ambulance & Driver Building Toy Playset - Preschool Learning and Educational Ambulance Toy for Toddlers Boys and Girls Ages 2+ - Pretend Play Baby Gift Idea - 10447 is just $19.99 (was $35.99 per Walmart)! That's 44% OFF — you save $16.00. 💰
+🚨 Hot markdown alert — Neutrogena Collagen Bank Facial Moisturizer Daily Collagen Face Lotion 2 fl. oz is just $13.97 (was $22.97 per Walmart)! That's 39% OFF — you save $9.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -72,11 +72,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — The Honest Kitchen Grain Free Minced Turkey in Bone Broth Gravy Wet Cat Food 5.5 oz x1 is just $21.98 (was $39.48 per Walmart)! That's 44% OFF — you save $17.50. 💰
+👀 Worth a serious look — Home Elegance 1916-9 Allura Collection Chest Silver - 38 x 17 x 51 in. is just $595.00 (was $932.00 per Walmart)! That's 36% OFF — you save $337.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Neutrogena Collagen Bank Facial Moisturizer Daily Collagen Face Lotion 2 fl. oz is just $13.97 (was $22.97 per Walmart)! That's 39% OFF — you save $9.00. 💰
+💸 Deal of the day — Mr Heater 10000 Btu Vent Free Radiant Propane Heater is just $139.99 (was $212.94 per Walmart)! That's 34% OFF — you save $72.95. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Home Elegance 1916-9 Allura Collection Chest Silver - 38 x 17 x 51 in. is just $595.00 (was $932.00 per Walmart)! That's 36% OFF — you save $337.00. 💰
+🔥 Today's steal — FH Quilted Sofa - JM+-Silver Gray is just $132.59 (was $200.97 per Walmart)! That's 34% OFF — you save $68.38. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Mr Heater 10000 Btu Vent Free Radiant Propane Heater is just $139.99 (was $212.94 per Walmart)! That's 34% OFF — you save $72.95. 💰
+✅ Price-checked find — Fraser Hill Farm 7.5 ft Oregon Pine Christmas Tree with Warm White LED Lighting FFOP075-5GR is just $259.99 (was $392.13 per Walmart)! That's 33% OFF — you save $132.14. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 McHugs: Plush Bag Charm - Juicy Cheese Burger - Brown-Red Stuffed Food Character Clip Keychain Backpack Ornament Travel Accessory Companion Kids 3+ dropped to $22.99 (was $28.99 per Walmart) — 20% OFF!
+🚨 PRICE DROP 🤯 John N. Hansen Co. Classic Game Collection - 21 Backgammon dropped to $65.59 (was $99.89 per Walmart) — 34% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 My Gift Lvl 9999 Unlimited Gacha: Backstabbed In A Backwater Dungeon I m Out For Revenge! Season 1 Collection dropped to $45.95 (was $69.98 per Walmart) — 34% OFF!
+👀 Don't sleep on this 🤯 Aveeno Stress Relief Body Lotion Lavender Scent 18 Fl oz dropped to $9.97 (was $14.14 per Walmart) — 29% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -186,8 +186,8 @@ AMP Research by RealTruck PowerStep XTreme Running Boards Fit 21-24 Ford F150 2.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-McHugs: Plush Bag Charm - Juicy Cheese Burger - Brown-Red Stuffed Food Character Clip Keychain Backpack Ornament Travel Accessory Companion Kids 3+ — $22.99 (was $28.99 per Walmart), 20% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
+John N. Hansen Co. Classic Game Collection - 21 Backgammon — $65.59 (was $99.89 per Walmart), 34% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -195,8 +195,8 @@ McHugs: Plush Bag Charm - Juicy Cheese Burger - Brown-Red Stuffed Food Character
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-My Gift Lvl 9999 Unlimited Gacha: Backstabbed In A Backwater Dungeon I m Out For Revenge! Season 1 Collection — $45.95 (was $69.98 per Walmart), 34% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Aveeno Stress Relief Body Lotion Lavender Scent 18 Fl oz — $9.97 (was $14.14 per Walmart), 29% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -209,10 +209,10 @@ My Gift Lvl 9999 Unlimited Gacha: Backstabbed In A Backwater Dungeon I m Out For
 🔥 Today's Top 5 — swipe through, save for later 📌
 
 1. Crocs Adult University of Alabama Collegiate Classic Clogs — $19.99 (66% off)
-2. Foster s Home For Imaginary Friends: The Complete Series (DV — $34.99 (56% off)
-3. LEGO DUPLO Town Ambulance & Driver Building Toy Playset - Pr — $19.99 (44% off)
-4. The Honest Kitchen Grain Free Minced Turkey in Bone Broth Gr — $21.98 (44% off)
-5. Neutrogena Collagen Bank Facial Moisturizer Daily Collagen F — $13.97 (39% off)
+2. Super7 Invincible 7 DELUXE Thragg Grand Regent Collectible A — $29.97 (51% off)
+3. Neutrogena Collagen Bank Facial Moisturizer Daily Collagen F — $13.97 (39% off)
+4. Home Elegance 1916-9 Allura Collection Chest Silver - 38 x 1 — $595.00 (36% off)
+5. Mr Heater 10000 Btu Vent Free Radiant Propane Heater — $139.99 (34% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -225,9 +225,9 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 🔥 TODAY'S TOP DEALS — up to 66% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Crocs Adult University of Alabama Collegiate — $19.99
-2. Foster s Home For Imaginary Friends: The Com — $34.99
-3. LEGO DUPLO Town Ambulance & Driver Building  — $19.99
-4. The Honest Kitchen Grain Free Minced Turkey  — $21.98
+2. Super7 Invincible 7 DELUXE Thragg Grand Rege — $29.97
+3. Neutrogena Collagen Bank Facial Moisturizer  — $13.97
+4. Home Elegance 1916-9 Allura Collection Chest — $595.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

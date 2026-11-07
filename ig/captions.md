@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 6, 2026
+# SnagDaily Instagram kit — Nov 7, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -36,11 +36,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Crocs Adult University of Alabama Collegiate Classic Clogs is just $19.99 (was $59.99 per Walmart)! That's 66% OFF — you save $40.00. 💰
+🔥 Today's steal — Little Chef Versailles Deluxe Play Kitchen Ice Maker Oven Refrigerator 17 Pcs. Acc. Set Olive Green/Gold is just $94.99 (was $171.99 per Walmart)! That's 44% OFF — you save $77.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -48,11 +48,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Super7 Invincible 7 DELUXE Thragg Grand Regent Collectible Action Figure is just $29.97 (was $62.09 per Walmart)! That's 51% OFF — you save $32.12. 💰
+✅ Price-checked find — Primos Hunting Turkey Decoy Lil Gobbstopper Jake/Hen Combo Molded Rubber is just $44.38 (was $79.36 per Walmart)! That's 44% OFF — you save $34.98. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Neutrogena Collagen Bank Facial Moisturizer Daily Collagen Face Lotion 2 fl. oz is just $13.97 (was $22.97 per Walmart)! That's 39% OFF — you save $9.00. 💰
+🚨 Hot markdown alert — MOOG RK621315 Control Arm and Ball Joint Assembly Fits select: 2008-2009 CHEVROLET TRAILBLAZER 2008-2009 GMC ENVOY is just $100.78 (was $171.27 per Walmart)! That's 41% OFF — you save $70.49. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -72,7 +72,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Home Elegance 1916-9 Allura Collection Chest Silver - 38 x 17 x 51 in. is just $595.00 (was $932.00 per Walmart)! That's 36% OFF — you save $337.00. 💰
+👀 Worth a serious look — SAFAVIEH Pyramid Donelle Geometric Area Rug Ivory/Grey 8 x 10 is just $110.16 (was $185.00 per Walmart)! That's 40% OFF — you save $74.84. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Mr Heater 10000 Btu Vent Free Radiant Propane Heater is just $139.99 (was $212.94 per Walmart)! That's 34% OFF — you save $72.95. 💰
+💸 Deal of the day — FH Quilted Sofa - JM+-Silver Gray is just $132.59 (was $200.97 per Walmart)! That's 34% OFF — you save $68.38. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — FH Quilted Sofa - JM+-Silver Gray is just $132.59 (was $200.97 per Walmart)! That's 34% OFF — you save $68.38. 💰
+🔥 Today's steal — Fraser Hill Farm 7.5 ft Oregon Pine Christmas Tree with Warm White LED Lighting FFOP075-5GR is just $259.99 (was $392.13 per Walmart)! That's 33% OFF — you save $132.14. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Fraser Hill Farm 7.5 ft Oregon Pine Christmas Tree with Warm White LED Lighting FFOP075-5GR is just $259.99 (was $392.13 per Walmart)! That's 33% OFF — you save $132.14. 💰
+✅ Price-checked find — John N. Hansen Co. Classic Game Collection - 21 Backgammon is just $65.59 (was $99.89 per Walmart)! That's 34% OFF — you save $34.30. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -120,11 +120,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Wrangler® Women s Retro High Rise Trouser Jean dropped to $35.02 (was $48.96 per Walmart) — 28% OFF!
+🔥 STEAL ALERT 🤯 Plano Manta Crossbow Carrying Case Expandable (Black) dropped to $102.00 (was $141.12 per Walmart) — 27% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -132,7 +132,7 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 AMP Research by RealTruck PowerStep XTreme Running Boards Fit 21-24 Ford F150 2.7-5.0L Engine dropped to $2,199.99 (was $2,998.50 per Walmart) — 26% OFF!
+✅ PRICE CHECKED 🤯 Petlas Elegant PT311 UHP Summer 195/65R14 89H Passenger Tire dropped to $64.06 (was $114.99 per Walmart) — 44% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 John N. Hansen Co. Classic Game Collection - 21 Backgammon dropped to $65.59 (was $99.89 per Walmart) — 34% OFF!
+🚨 PRICE DROP 🤯 Magic Chef 1 cu ft Countertop Microwave Oven in Multicolored dropped to $199.00 (was $289.00 per Walmart) — 31% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Aveeno Stress Relief Body Lotion Lavender Scent 18 Fl oz dropped to $9.97 (was $14.14 per Walmart) — 29% OFF!
+👀 Don't sleep on this 🤯 Savory Prime Natural Chicken Grain Free Jerky Tenders For Dogs 16 oz 1 pk dropped to $24.72 (was $35.28 per Walmart) — 29% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -168,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Wrangler® Women s Retro High Rise Trouser Jean — $35.02 (was $48.96 per Walmart), 28% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
+Plano Manta Crossbow Carrying Case Expandable (Black) — $102.00 (was $141.12 per Walmart), 27% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -177,7 +177,7 @@ Wrangler® Women s Retro High Rise Trouser Jean — $35.02 (was $48.96 per Walma
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-AMP Research by RealTruck PowerStep XTreme Running Boards Fit 21-24 Ford F150 2.7-5.0L Engine — $2,199.99 (was $2,998.50 per Walmart), 26% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Petlas Elegant PT311 UHP Summer 195/65R14 89H Passenger Tire — $64.06 (was $114.99 per Walmart), 44% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
 
 ---
@@ -186,8 +186,8 @@ AMP Research by RealTruck PowerStep XTreme Running Boards Fit 21-24 Ford F150 2.
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-John N. Hansen Co. Classic Game Collection - 21 Backgammon — $65.59 (was $99.89 per Walmart), 34% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+Magic Chef 1 cu ft Countertop Microwave Oven in Multicolored — $199.00 (was $289.00 per Walmart), 31% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
 
@@ -195,8 +195,8 @@ John N. Hansen Co. Classic Game Collection - 21 Backgammon — $65.59 (was $99.8
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Aveeno Stress Relief Body Lotion Lavender Scent 18 Fl oz — $9.97 (was $14.14 per Walmart), 29% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Savory Prime Natural Chicken Grain Free Jerky Tenders For Dogs 16 oz 1 pk — $24.72 (was $35.28 per Walmart), 29% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
 
 ---
 
@@ -208,11 +208,11 @@ Aveeno Stress Relief Body Lotion Lavender Scent 18 Fl oz — $9.97 (was $14.14 p
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Crocs Adult University of Alabama Collegiate Classic Clogs — $19.99 (66% off)
-2. Super7 Invincible 7 DELUXE Thragg Grand Regent Collectible A — $29.97 (51% off)
-3. Neutrogena Collagen Bank Facial Moisturizer Daily Collagen F — $13.97 (39% off)
-4. Home Elegance 1916-9 Allura Collection Chest Silver - 38 x 1 — $595.00 (36% off)
-5. Mr Heater 10000 Btu Vent Free Radiant Propane Heater — $139.99 (34% off)
+1. Little Chef Versailles Deluxe Play Kitchen Ice Maker Oven Re — $94.99 (44% off)
+2. Primos Hunting Turkey Decoy Lil Gobbstopper Jake/Hen Combo M — $44.38 (44% off)
+3. MOOG RK621315 Control Arm and Ball Joint Assembly Fits selec — $100.78 (41% off)
+4. SAFAVIEH Pyramid Donelle Geometric Area Rug Ivory/Grey 8 x 1 — $110.16 (40% off)
+5. FH Quilted Sofa - JM+-Silver Gray — $132.59 (34% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -222,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 66% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 46% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Crocs Adult University of Alabama Collegiate — $19.99
-2. Super7 Invincible 7 DELUXE Thragg Grand Rege — $29.97
-3. Neutrogena Collagen Bank Facial Moisturizer  — $13.97
-4. Home Elegance 1916-9 Allura Collection Chest — $595.00
+1. Little Chef Versailles Deluxe Play Kitchen I — $94.99
+2. Primos Hunting Turkey Decoy Lil Gobbstopper  — $44.38
+3. MOOG RK621315 Control Arm and Ball Joint Ass — $100.78
+4. SAFAVIEH Pyramid Donelle Geometric Area Rug  — $110.16
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

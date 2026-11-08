@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 7, 2026
+# SnagDaily Instagram kit — Nov 8, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -36,11 +36,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Little Chef Versailles Deluxe Play Kitchen Ice Maker Oven Refrigerator 17 Pcs. Acc. Set Olive Green/Gold is just $94.99 (was $171.99 per Walmart)! That's 44% OFF — you save $77.00. 💰
+🔥 Today's steal — SHANY Bundle Makeup Set - All in One Make up Bulk Box - Includes Pro Cosmetics Brush Set Eyeshadow Palette Face Sponge Blender Lip-gloss and more. - HOLIDAY GIFT IDEA - Color Styles Vary - Slay is just $39.99 (was $99.98 per Walmart)! That's 60% OFF — you save $59.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -48,11 +48,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Primos Hunting Turkey Decoy Lil Gobbstopper Jake/Hen Combo Molded Rubber is just $44.38 (was $79.36 per Walmart)! That's 44% OFF — you save $34.98. 💰
+✅ Price-checked find — Dorman 425-360 Steering Shaft for Specific Ford / Lincoln / Mercury Models is just $81.49 (was $179.66 per Walmart)! That's 54% OFF — you save $98.17. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — MOOG RK621315 Control Arm and Ball Joint Assembly Fits select: 2008-2009 CHEVROLET TRAILBLAZER 2008-2009 GMC ENVOY is just $100.78 (was $171.27 per Walmart)! That's 41% OFF — you save $70.49. 💰
+🚨 Hot markdown alert — I ll Remind You of Everything: The Films of Mike Mills (The Criterion Collection) Beginners / 20th Century Women / C mon C mon 4K UHD is just $68.99 (was $124.95 per Walmart)! That's 44% OFF — you save $55.96. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
 
 ---
 
@@ -72,7 +72,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — SAFAVIEH Pyramid Donelle Geometric Area Rug Ivory/Grey 8 x 10 is just $110.16 (was $185.00 per Walmart)! That's 40% OFF — you save $74.84. 💰
+👀 Worth a serious look — Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door Refrigerator/Freezer Stainless Steel is just $449.00 (was $799.99 per Walmart)! That's 43% OFF — you save $350.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — FH Quilted Sofa - JM+-Silver Gray is just $132.59 (was $200.97 per Walmart)! That's 34% OFF — you save $68.38. 💰
+💸 Deal of the day — SaluSpa Grenada AirJet Inflatable Circle Hot Tub Spa 6-8 Person with Pump #P09146 is just $403.20 (was $699.99 per Walmart)! That's 42% OFF — you save $296.79. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Fraser Hill Farm 7.5 ft Oregon Pine Christmas Tree with Warm White LED Lighting FFOP075-5GR is just $259.99 (was $392.13 per Walmart)! That's 33% OFF — you save $132.14. 💰
+🔥 Today's steal — PetSafe Classic Replacement Flap Medium is just $26.95 (was $46.01 per Walmart)! That's 41% OFF — you save $19.06. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — John N. Hansen Co. Classic Game Collection - 21 Backgammon is just $65.59 (was $99.89 per Walmart)! That's 34% OFF — you save $34.30. 💰
+✅ Price-checked find — Hi Footwear Scott Slipper With Arch is just $27.98 (was $45.95 per Walmart)! That's 39% OFF — you save $17.97. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -120,11 +120,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Plano Manta Crossbow Carrying Case Expandable (Black) dropped to $102.00 (was $141.12 per Walmart) — 27% OFF!
+🔥 STEAL ALERT 🤯 Segway MAX G3 Electric Scooter 28 mph Max Speed 50 Miles Max Range Teens and Adults Black dropped to $958.00 (was $1,499.99 per Walmart) — 36% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -132,11 +132,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Petlas Elegant PT311 UHP Summer 195/65R14 89H Passenger Tire dropped to $64.06 (was $114.99 per Walmart) — 44% OFF!
+✅ PRICE CHECKED 🤯 CookieRun Trading Card Game: Age of Heroes & Kingdoms - 4 Booster Packs (9 Cards Ea) - Battle TCG Deck Building Randomly Assorted History & Legends dropped to $16.70 (was $24.99 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Magic Chef 1 cu ft Countertop Microwave Oven in Multicolored dropped to $199.00 (was $289.00 per Walmart) — 31% OFF!
+🚨 PRICE DROP 🤯 Infant Onezies and Track Sweatpants dropped to $24.26 (was $32.99 per Walmart) — 26% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Savory Prime Natural Chicken Grain Free Jerky Tenders For Dogs 16 oz 1 pk dropped to $24.72 (was $35.28 per Walmart) — 29% OFF!
+👀 Don't sleep on this 🤯 Burberry Classic Eau De Parfum Cologne For Men 3.3 oz dropped to $39.49 (was $110.00 per Walmart) — 64% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -168,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Plano Manta Crossbow Carrying Case Expandable (Black) — $102.00 (was $141.12 per Walmart), 27% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Segway MAX G3 Electric Scooter 28 mph Max Speed 50 Miles Max Range Teens and Adults Black — $958.00 (was $1,499.99 per Walmart), 36% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -177,8 +177,8 @@ Plano Manta Crossbow Carrying Case Expandable (Black) — $102.00 (was $141.12 p
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Petlas Elegant PT311 UHP Summer 195/65R14 89H Passenger Tire — $64.06 (was $114.99 per Walmart), 44% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+CookieRun Trading Card Game: Age of Heroes & Kingdoms - 4 Booster Packs (9 Cards Ea) - Battle TCG Deck Building Randomly Assorted History & Legends — $16.70 (was $24.99 per Walmart), 33% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #other
 
 ---
 
@@ -186,8 +186,8 @@ Petlas Elegant PT311 UHP Summer 195/65R14 89H Passenger Tire — $64.06 (was $11
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Magic Chef 1 cu ft Countertop Microwave Oven in Multicolored — $199.00 (was $289.00 per Walmart), 31% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
+Infant Onezies and Track Sweatpants — $24.26 (was $32.99 per Walmart), 26% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -195,8 +195,8 @@ Magic Chef 1 cu ft Countertop Microwave Oven in Multicolored — $199.00 (was $2
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Savory Prime Natural Chicken Grain Free Jerky Tenders For Dogs 16 oz 1 pk — $24.72 (was $35.28 per Walmart), 29% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #pets
+Burberry Classic Eau De Parfum Cologne For Men 3.3 oz — $39.49 (was $110.00 per Walmart), 64% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -208,11 +208,11 @@ Savory Prime Natural Chicken Grain Free Jerky Tenders For Dogs 16 oz 1 pk — $2
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Little Chef Versailles Deluxe Play Kitchen Ice Maker Oven Re — $94.99 (44% off)
-2. Primos Hunting Turkey Decoy Lil Gobbstopper Jake/Hen Combo M — $44.38 (44% off)
-3. MOOG RK621315 Control Arm and Ball Joint Assembly Fits selec — $100.78 (41% off)
-4. SAFAVIEH Pyramid Donelle Geometric Area Rug Ivory/Grey 8 x 1 — $110.16 (40% off)
-5. FH Quilted Sofa - JM+-Silver Gray — $132.59 (34% off)
+1. SHANY Bundle Makeup Set - All in One Make up Bulk Box - Incl — $39.99 (60% off)
+2. Dorman 425-360 Steering Shaft for Specific Ford / Lincoln /  — $81.49 (54% off)
+3. I ll Remind You of Everything: The Films of Mike Mills (The  — $68.99 (44% off)
+4. Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door Refrigerator/Fre — $449.00 (43% off)
+5. SaluSpa Grenada AirJet Inflatable Circle Hot Tub Spa 6-8 Per — $403.20 (42% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -222,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 46% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 64% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Little Chef Versailles Deluxe Play Kitchen I — $94.99
-2. Primos Hunting Turkey Decoy Lil Gobbstopper  — $44.38
-3. MOOG RK621315 Control Arm and Ball Joint Ass — $100.78
-4. SAFAVIEH Pyramid Donelle Geometric Area Rug  — $110.16
+1. SHANY Bundle Makeup Set - All in One Make up — $39.99
+2. Dorman 425-360 Steering Shaft for Specific F — $81.49
+3. I ll Remind You of Everything: The Films of  — $68.99
+4. Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door  — $449.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

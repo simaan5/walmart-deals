@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 8, 2026
+# SnagDaily Instagram kit — Nov 9, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -48,11 +48,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Dorman 425-360 Steering Shaft for Specific Ford / Lincoln / Mercury Models is just $81.49 (was $179.66 per Walmart)! That's 54% OFF — you save $98.17. 💰
+✅ Price-checked find — Big Chill Women s and Women s Plus Chevron Quilted Puffer Vest Midweight Sizes S-3X is just $25.96 (was $59.99 per Walmart)! That's 56% OFF — you save $34.03. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — I ll Remind You of Everything: The Films of Mike Mills (The Criterion Collection) Beginners / 20th Century Women / C mon C mon 4K UHD is just $68.99 (was $124.95 per Walmart)! That's 44% OFF — you save $55.96. 💰
+🚨 Hot markdown alert — JL Audio MHD900/5: 5 Ch. Class D Full-Range Marine System Amplifier 900 W is just $865.19 (was $1,699.99 per Walmart)! That's 49% OFF — you save $834.80. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — PetSafe Classic Replacement Flap Medium is just $26.95 (was $46.01 per Walmart)! That's 41% OFF — you save $19.06. 💰
+🔥 Today's steal — Segway MAX G3 Electric Scooter 28 mph Max Speed 50 Miles Max Range Teens and Adults Black is just $958.00 (was $1,499.99 per Walmart)! That's 36% OFF — you save $541.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Hi Footwear Scott Slipper With Arch is just $27.98 (was $45.95 per Walmart)! That's 39% OFF — you save $17.97. 💰
+✅ Price-checked find — PetSafe Guardian GPS 2.0 Fence + Tracking for Dogs Black is just $299.00 (was $449.99 per Walmart)! That's 33% OFF — you save $150.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -120,11 +120,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Segway MAX G3 Electric Scooter 28 mph Max Speed 50 Miles Max Range Teens and Adults Black dropped to $958.00 (was $1,499.99 per Walmart) — 36% OFF!
+🔥 STEAL ALERT 🤯 Men s REALTREE® EDGE™ Fieldblazer Classic Fleece Boot Chocolate And Realtree Edge Size 5(M) dropped to $100.00 (was $150.00 per Walmart) — 33% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Infant Onezies and Track Sweatpants dropped to $24.26 (was $32.99 per Walmart) — 26% OFF!
+🚨 PRICE DROP 🤯 Sony 77” class BRAVIA 8 OLED 4K HDR Smart Google TV K77XR80 2024 Model dropped to $2,098.60 (was $2,998.00 per Walmart) — 30% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,7 +156,7 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Burberry Classic Eau De Parfum Cologne For Men 3.3 oz dropped to $39.49 (was $110.00 per Walmart) — 64% OFF!
+👀 Don't sleep on this 🤯 Unique Bargains 7 In Straight Scissors for Long Short Thick Hair for Men Women Silver Tone dropped to $11.79 (was $23.99 per Walmart) — 50% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -168,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Segway MAX G3 Electric Scooter 28 mph Max Speed 50 Miles Max Range Teens and Adults Black — $958.00 (was $1,499.99 per Walmart), 36% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
+Men s REALTREE® EDGE™ Fieldblazer Classic Fleece Boot Chocolate And Realtree Edge Size 5(M) — $100.00 (was $150.00 per Walmart), 33% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
 
 ---
 
@@ -186,8 +186,8 @@ CookieRun Trading Card Game: Age of Heroes & Kingdoms - 4 Booster Packs (9 Cards
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Infant Onezies and Track Sweatpants — $24.26 (was $32.99 per Walmart), 26% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
+Sony 77” class BRAVIA 8 OLED 4K HDR Smart Google TV K77XR80 2024 Model — $2,098.60 (was $2,998.00 per Walmart), 30% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -195,7 +195,7 @@ Infant Onezies and Track Sweatpants — $24.26 (was $32.99 per Walmart), 26% off
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Burberry Classic Eau De Parfum Cologne For Men 3.3 oz — $39.49 (was $110.00 per Walmart), 64% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Unique Bargains 7 In Straight Scissors for Long Short Thick Hair for Men Women Silver Tone — $11.79 (was $23.99 per Walmart), 50% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
@@ -209,8 +209,8 @@ Burberry Classic Eau De Parfum Cologne For Men 3.3 oz — $39.49 (was $110.00 pe
 🔥 Today's Top 5 — swipe through, save for later 📌
 
 1. SHANY Bundle Makeup Set - All in One Make up Bulk Box - Incl — $39.99 (60% off)
-2. Dorman 425-360 Steering Shaft for Specific Ford / Lincoln /  — $81.49 (54% off)
-3. I ll Remind You of Everything: The Films of Mike Mills (The  — $68.99 (44% off)
+2. Big Chill Women s and Women s Plus Chevron Quilted Puffer Ve — $25.96 (56% off)
+3. JL Audio MHD900/5: 5 Ch. Class D Full-Range Marine System Am — $865.19 (49% off)
 4. Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door Refrigerator/Fre — $449.00 (43% off)
 5. SaluSpa Grenada AirJet Inflatable Circle Hot Tub Spa 6-8 Per — $403.20 (42% off)
 
@@ -222,11 +222,11 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 64% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 60% OFF at Walmart! Which one are you grabbing? 👇
 
 1. SHANY Bundle Makeup Set - All in One Make up — $39.99
-2. Dorman 425-360 Steering Shaft for Specific F — $81.49
-3. I ll Remind You of Everything: The Films of  — $68.99
+2. Big Chill Women s and Women s Plus Chevron Q — $25.96
+3. JL Audio MHD900/5: 5 Ch. Class D Full-Range  — $865.19
 4. Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door  — $449.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals

@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 9, 2026
+# SnagDaily Instagram kit — Nov 10, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -36,11 +36,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — SHANY Bundle Makeup Set - All in One Make up Bulk Box - Includes Pro Cosmetics Brush Set Eyeshadow Palette Face Sponge Blender Lip-gloss and more. - HOLIDAY GIFT IDEA - Color Styles Vary - Slay is just $39.99 (was $99.98 per Walmart)! That's 60% OFF — you save $59.99. 💰
+🔥 Today's steal — Big Chill Women s and Women s Plus Chevron Quilted Puffer Vest Midweight Sizes S-3X is just $25.96 (was $59.99 per Walmart)! That's 56% OFF — you save $34.03. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -48,11 +48,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Big Chill Women s and Women s Plus Chevron Quilted Puffer Vest Midweight Sizes S-3X is just $25.96 (was $59.99 per Walmart)! That's 56% OFF — you save $34.03. 💰
+✅ Price-checked find — Crest Advanced Kid s Fluoride Toothpaste Bubblegum Flavor 4.2 oz 3 Count is just $10.97 (was $24.90 per Walmart)! That's 55% OFF — you save $13.93. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -72,11 +72,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door Refrigerator/Freezer Stainless Steel is just $449.00 (was $799.99 per Walmart)! That's 43% OFF — you save $350.99. 💰
+👀 Worth a serious look — Better Homes & Gardens Vista Outdoor Dining Table Cream Stone-Finish Metal Top with Teak Hand-Painted Legs is just $197.00 (was $347.00 per Walmart)! That's 43% OFF — you save $150.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — SaluSpa Grenada AirJet Inflatable Circle Hot Tub Spa 6-8 Person with Pump #P09146 is just $403.20 (was $699.99 per Walmart)! That's 42% OFF — you save $296.79. 💰
+💸 Deal of the day — SAFAVIEH Florida Teodor Floral Shag Area Rug Smoke/Beige 6 x 9 is just $175.00 (was $306.00 per Walmart)! That's 42% OFF — you save $131.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Segway MAX G3 Electric Scooter 28 mph Max Speed 50 Miles Max Range Teens and Adults Black is just $958.00 (was $1,499.99 per Walmart)! That's 36% OFF — you save $541.99. 💰
+🔥 Today's steal — PetSafe Guardian GPS 2.0 Fence + Tracking for Dogs Black is just $299.00 (was $449.99 per Walmart)! That's 33% OFF — you save $150.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — PetSafe Guardian GPS 2.0 Fence + Tracking for Dogs Black is just $299.00 (was $449.99 per Walmart)! That's 33% OFF — you save $150.99. 💰
+✅ Price-checked find — Men s REALTREE® EDGE™ Fieldblazer Classic Fleece Boot Chocolate And Realtree Edge Size 5(M) is just $100.00 (was $150.00 per Walmart)! That's 33% OFF — you save $50.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -120,11 +120,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Men s REALTREE® EDGE™ Fieldblazer Classic Fleece Boot Chocolate And Realtree Edge Size 5(M) dropped to $100.00 (was $150.00 per Walmart) — 33% OFF!
+🔥 STEAL ALERT 🤯 Sony 77” class BRAVIA 8 OLED 4K HDR Smart Google TV K77XR80 2024 Model dropped to $2,098.60 (was $2,998.00 per Walmart) — 30% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -132,11 +132,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 CookieRun Trading Card Game: Age of Heroes & Kingdoms - 4 Booster Packs (9 Cards Ea) - Battle TCG Deck Building Randomly Assorted History & Legends dropped to $16.70 (was $24.99 per Walmart) — 33% OFF!
+✅ PRICE CHECKED 🤯 Lionel Thomas & Friends Electric O Gauge Model Train Set with Remote and Bluetooth Capability dropped to $256.49 (was $345.59 per Walmart) — 25% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Sony 77” class BRAVIA 8 OLED 4K HDR Smart Google TV K77XR80 2024 Model dropped to $2,098.60 (was $2,998.00 per Walmart) — 30% OFF!
+🚨 PRICE DROP 🤯 Emillie Ferris: Paint with Thread: Through the Seasons Book 1 (Hardcover) dropped to $17.69 (was $23.56 per Walmart) — 24% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Unique Bargains 7 In Straight Scissors for Long Short Thick Hair for Men Women Silver Tone dropped to $11.79 (was $23.99 per Walmart) — 50% OFF!
+👀 Don't sleep on this 🤯 Free Assembly Women s Embellished Carpenter Pants Light Artichoke 30 in Inseam dropped to $19.00 (was $38.00 per Walmart) — 50% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -168,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Men s REALTREE® EDGE™ Fieldblazer Classic Fleece Boot Chocolate And Realtree Edge Size 5(M) — $100.00 (was $150.00 per Walmart), 33% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
+Sony 77” class BRAVIA 8 OLED 4K HDR Smart Google TV K77XR80 2024 Model — $2,098.60 (was $2,998.00 per Walmart), 30% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -177,8 +177,8 @@ Men s REALTREE® EDGE™ Fieldblazer Classic Fleece Boot Chocolate And Realtree 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-CookieRun Trading Card Game: Age of Heroes & Kingdoms - 4 Booster Packs (9 Cards Ea) - Battle TCG Deck Building Randomly Assorted History & Legends — $16.70 (was $24.99 per Walmart), 33% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #other
+Lionel Thomas & Friends Electric O Gauge Model Train Set with Remote and Bluetooth Capability — $256.49 (was $345.59 per Walmart), 25% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
 
@@ -186,8 +186,8 @@ CookieRun Trading Card Game: Age of Heroes & Kingdoms - 4 Booster Packs (9 Cards
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Sony 77” class BRAVIA 8 OLED 4K HDR Smart Google TV K77XR80 2024 Model — $2,098.60 (was $2,998.00 per Walmart), 30% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Emillie Ferris: Paint with Thread: Through the Seasons Book 1 (Hardcover) — $17.69 (was $23.56 per Walmart), 24% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #other
 
 ---
 
@@ -195,8 +195,8 @@ Sony 77” class BRAVIA 8 OLED 4K HDR Smart Google TV K77XR80 2024 Model — $2,
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Unique Bargains 7 In Straight Scissors for Long Short Thick Hair for Men Women Silver Tone — $11.79 (was $23.99 per Walmart), 50% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Free Assembly Women s Embellished Carpenter Pants Light Artichoke 30 in Inseam — $19.00 (was $38.00 per Walmart), 50% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
 
 ---
 
@@ -208,11 +208,11 @@ Unique Bargains 7 In Straight Scissors for Long Short Thick Hair for Men Women S
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. SHANY Bundle Makeup Set - All in One Make up Bulk Box - Incl — $39.99 (60% off)
-2. Big Chill Women s and Women s Plus Chevron Quilted Puffer Ve — $25.96 (56% off)
+1. Big Chill Women s and Women s Plus Chevron Quilted Puffer Ve — $25.96 (56% off)
+2. Crest Advanced Kid s Fluoride Toothpaste Bubblegum Flavor 4. — $10.97 (55% off)
 3. JL Audio MHD900/5: 5 Ch. Class D Full-Range Marine System Am — $865.19 (49% off)
-4. Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door Refrigerator/Fre — $449.00 (43% off)
-5. SaluSpa Grenada AirJet Inflatable Circle Hot Tub Spa 6-8 Per — $403.20 (42% off)
+4. Better Homes & Gardens Vista Outdoor Dining Table Cream Ston — $197.00 (43% off)
+5. SAFAVIEH Florida Teodor Floral Shag Area Rug Smoke/Beige 6 x — $175.00 (42% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -222,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 60% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 56% OFF at Walmart! Which one are you grabbing? 👇
 
-1. SHANY Bundle Makeup Set - All in One Make up — $39.99
-2. Big Chill Women s and Women s Plus Chevron Q — $25.96
+1. Big Chill Women s and Women s Plus Chevron Q — $25.96
+2. Crest Advanced Kid s Fluoride Toothpaste Bub — $10.97
 3. JL Audio MHD900/5: 5 Ch. Class D Full-Range  — $865.19
-4. Arctic Chef 5.5 Cu. ft. Side-by-Side 2 Door  — $449.00
+4. Better Homes & Gardens Vista Outdoor Dining  — $197.00
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

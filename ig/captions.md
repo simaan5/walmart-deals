@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 13, 2026
+# SnagDaily Instagram kit — Nov 15, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -36,11 +36,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — American Roadstar HP AS All Season 285/45R22 114V XL Passenger Tire is just $149.94 (was $255.66 per Walmart)! That's 41% OFF — you save $105.72. 💰
+🔥 Today's steal — Bolle Chronoshield Polarized Volt+ Black Matte Unisex Shield Sunglasses with Mirror Lens is just $72.01 (was $210.00 per Walmart)! That's 65% OFF — you save $137.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -48,11 +48,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Davines MELU Anti-breakage Shampoo 33.8 oz is just $34.00 (was $56.00 per Walmart)! That's 39% OFF — you save $22.00. 💰
+✅ Price-checked find — Rapsodo Golf Mobile Launch Monitor Black/Red Swing Trainers Analyzers New is just $192.00 (was $392.00 per Walmart)! That's 51% OFF — you save $200.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Sleep Token - Sundowning - Music & Performance - Vinyl is just $34.19 (was $55.53 per Walmart)! That's 38% OFF — you save $21.34. 💰
+🚨 Hot markdown alert — Levi s Boys Heavyweight Puffer Jacket with Hood Sizes 8-20 is just $49.99 (was $100.00 per Walmart)! That's 50% OFF — you save $50.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -72,11 +72,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Lionel Warner Bros. National Lampoon s Christmas Vacation Ready to Play Model Train Set is just $73.00 (was $115.00 per Walmart)! That's 36% OFF — you save $42.00. 💰
+👀 Worth a serious look — FurHaven Plush & Velvet Deluxe L-Chaise Lounge Orthopedic Sofa Pet Bed Deep Sapphire Medium 1 Count is just $29.99 (was $59.99 per Walmart)! That's 50% OFF — you save $30.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Hudson Baby Infant Girls Long Sleeve Plush Faux Fur Sleeping Bag Wearable Blanket Neutral Pink Floral 0-6 Months is just $14.90 (was $21.99 per Walmart)! That's 32% OFF — you save $7.09. 💰
+💸 Deal of the day — Black Boar ATV/UTV Plugger is just $178.50 (was $325.99 per Walmart)! That's 45% OFF — you save $147.49. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — KitchenAid Artisan® Series 5 Quart Tilt-Head Stand Mixer KSM150PSDC Cardamom is just $349.00 (was $499.99 per Walmart)! That's 30% OFF — you save $150.99. 💰
+🔥 Today's steal — Little Tikes Football Pass Battle Outdoor Sports Boys Girls Ages 3+ is just $24.97 (was $44.99 per Walmart)! That's 44% OFF — you save $20.02. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Space Solutions 3 Drawer Vertical Metal File Cabinet with Lock in Pearl White is just $108.49 (was $154.99 per Walmart)! That's 30% OFF — you save $46.50. 💰
+✅ Price-checked find — De Longhi Eletta Explore Fully Automatic Espresso Machine with Cold Brew ECAM45086S is just $1,499.95 (was $2,599.95 per Walmart)! That's 42% OFF — you save $1,100.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -120,7 +120,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Julia Buxton Women s Pebble Vegan Leather RFID Ultimate Double Zip Organizer Brown dropped to $34.95 (was $46.40 per Walmart) — 24% OFF!
+🔥 STEAL ALERT 🤯 Madden Girl Women s Paisleyy Slip On Clog dropped to $34.65 (was $55.00 per Walmart) — 37% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -132,11 +132,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Yokohama Geolandar AT G015 All Terrain LT255/70R16 115/112S D Light Truck Tire dropped to $222.95 (was $465.88 per Walmart) — 52% OFF!
+✅ PRICE CHECKED 🤯 Northlight Real Touch™️ Full Hudson Fir Artificial Christmas Tree - Unlit - 6.5 dropped to $246.99 (was $390.00 per Walmart) — 36% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Philips Sonicare Diamondclean Smart 9300 Electric Toothbrush Sonic Toothbrush with App Pressure Sensor Brush Head Detection 4 Brushing Modes and 3 Intensity Levels Black Model HX9903/15 dropped to $199.96 (was $249.99 per Walmart) — 20% OFF!
+🚨 PRICE DROP 🤯 Timex Men s Expedition Traditional Brown/Natural 40mm Outdoor Watch Leather Strap dropped to $62.00 (was $88.23 per Walmart) — 29% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Bieber Justin-my World (cd) (music) dropped to $10.52 (was $18.98 per Walmart) — 44% OFF!
+👀 Don't sleep on this 🤯 Braun Series 9 Pro Electric Razor for Men with PowerCase Clean Station Rechargeable Wet Dry Shaver 9477cc dropped to $299.97 (was $409.94 per Walmart) — 26% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -168,8 +168,8 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Julia Buxton Women s Pebble Vegan Leather RFID Ultimate Double Zip Organizer Brown — $34.95 (was $46.40 per Walmart), 24% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #accessories
+Madden Girl Women s Paisleyy Slip On Clog — $34.65 (was $55.00 per Walmart), 37% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
 
 ---
 
@@ -177,8 +177,8 @@ Julia Buxton Women s Pebble Vegan Leather RFID Ultimate Double Zip Organizer Bro
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Yokohama Geolandar AT G015 All Terrain LT255/70R16 115/112S D Light Truck Tire — $222.95 (was $465.88 per Walmart), 52% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #automotive
+Northlight Real Touch™️ Full Hudson Fir Artificial Christmas Tree - Unlit - 6.5 — $246.99 (was $390.00 per Walmart), 36% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -186,8 +186,8 @@ Yokohama Geolandar AT G015 All Terrain LT255/70R16 115/112S D Light Truck Tire �
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Philips Sonicare Diamondclean Smart 9300 Electric Toothbrush Sonic Toothbrush with App Pressure Sensor Brush Head Detection 4 Brushing Modes and 3 Intensity Levels Black Model HX9903/15 — $199.96 (was $249.99 per Walmart), 20% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Timex Men s Expedition Traditional Brown/Natural 40mm Outdoor Watch Leather Strap — $62.00 (was $88.23 per Walmart), 29% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
 
 ---
 
@@ -195,8 +195,8 @@ Philips Sonicare Diamondclean Smart 9300 Electric Toothbrush Sonic Toothbrush wi
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Bieber Justin-my World (cd) (music) — $10.52 (was $18.98 per Walmart), 44% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Braun Series 9 Pro Electric Razor for Men with PowerCase Clean Station Rechargeable Wet Dry Shaver 9477cc — $299.97 (was $409.94 per Walmart), 26% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
 
 ---
 
@@ -208,11 +208,11 @@ Bieber Justin-my World (cd) (music) — $10.52 (was $18.98 per Walmart), 44% off
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. American Roadstar HP AS All Season 285/45R22 114V XL Passeng — $149.94 (41% off)
-2. Davines MELU Anti-breakage Shampoo 33.8 oz — $34.00 (39% off)
-3. Sleep Token - Sundowning - Music & Performance - Vinyl — $34.19 (38% off)
-4. Lionel Warner Bros. National Lampoon s Christmas Vacation Re — $73.00 (36% off)
-5. Hudson Baby Infant Girls Long Sleeve Plush Faux Fur Sleeping — $14.90 (32% off)
+1. Bolle Chronoshield Polarized Volt+ Black Matte Unisex Shield — $72.01 (65% off)
+2. Rapsodo Golf Mobile Launch Monitor Black/Red Swing Trainers  — $192.00 (51% off)
+3. Levi s Boys Heavyweight Puffer Jacket with Hood Sizes 8-20 — $49.99 (50% off)
+4. FurHaven Plush & Velvet Deluxe L-Chaise Lounge Orthopedic So — $29.99 (50% off)
+5. Black Boar ATV/UTV Plugger — $178.50 (45% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -222,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 53% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 65% OFF at Walmart! Which one are you grabbing? 👇
 
-1. American Roadstar HP AS All Season 285/45R22 — $149.94
-2. Davines MELU Anti-breakage Shampoo 33.8 oz — $34.00
-3. Sleep Token - Sundowning - Music & Performan — $34.19
-4. Lionel Warner Bros. National Lampoon s Chris — $73.00
+1. Bolle Chronoshield Polarized Volt+ Black Mat — $72.01
+2. Rapsodo Golf Mobile Launch Monitor Black/Red — $192.00
+3. Levi s Boys Heavyweight Puffer Jacket with H — $49.99
+4. FurHaven Plush & Velvet Deluxe L-Chaise Loun — $29.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

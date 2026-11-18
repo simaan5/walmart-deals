@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 17, 2026
+# SnagDaily Instagram kit — Nov 18, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Shark SpeedStyle Essential Hair Dryer High-Velocity Powerful and Lightweight No Heat Damage HD301BK Black/Rose Gold is just $99.00 (was $199.99 per Walmart)! That's 50% OFF — you save $100.99. 💰
+🚨 Hot markdown alert — Serta Cuddler Bolster Cat & Dog Bed Mocha Large is just $35.00 (was $69.99 per Walmart)! That's 50% OFF — you save $34.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -72,11 +72,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Serta Cuddler Bolster Cat & Dog Bed Mocha Large is just $35.00 (was $69.99 per Walmart)! That's 50% OFF — you save $34.99. 💰
+👀 Worth a serious look — Spectra Premium CU2603 Automotive Radiator is just $68.49 (was $133.48 per Walmart)! That's 48% OFF — you save $64.99. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
 
 ---
 
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — Spectra Premium CU2603 Automotive Radiator is just $68.49 (was $133.48 per Walmart)! That's 48% OFF — you save $64.99. 💰
+💸 Deal of the day — Moda Brush Neon Nights 6pc Full Face Makeup Brush Kit is just $10.98 (was $20.99 per Walmart)! That's 47% OFF — you save $10.01. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #carcare #autodeals #cardetailing
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Gymax 7.5 FT Pre-Lit Artificial Christmas Tree Realistic Xmas Tree w/ 540 Warm White LED Lights 1125 Dense Branch Tips is just $139.99 (was $268.99 per Walmart)! That's 48% OFF — you save $129.00. 💰
+🔥 Today's steal — De Longhi Automatic Espresso Machine with Manual Milk Frother - Black is just $449.95 (was $799.95 per Walmart)! That's 43% OFF — you save $350.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — De Longhi Automatic Espresso Machine with Manual Milk Frother - Black is just $449.95 (was $799.95 per Walmart)! That's 43% OFF — you save $350.00. 💰
+✅ Price-checked find — DARING DIVA Plus Size Crew Neck Sleeveless Dress 1X Black is just $38.99 (was $66.39 per Walmart)! That's 41% OFF — you save $27.40. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -120,7 +120,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Game of Thrones Puzzle dropped to $24.97 (was $42.89 per Walmart) — 41% OFF!
+🔥 STEAL ALERT 🤯 Melissa & Doug 19-Piece Deluxe Wooden Cooktop Set With Wooden Play Food Durable Pot and Pan dropped to $32.99 (was $54.99 per Walmart) — 40% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -132,7 +132,7 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Skechers Work Men s Delson 3.0 Tyoll No Tie Fit™ Slip Resistant Carbon Nano Toe Work Shoes dropped to $66.15 (was $105.00 per Walmart) — 37% OFF!
+✅ PRICE CHECKED 🤯 Invicta Men s 1513 I Force Collection Stainless Steel and Cloth Watch dropped to $60.77 (was $80.94 per Walmart) — 24% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Invicta Men s Pro Diver Automatic Stainless Steel Watch 8929OB dropped to $106.37 (was $154.09 per Walmart) — 31% OFF!
+🚨 PRICE DROP 🤯 Garmin inReach Mini 3 Rugged Compact Global Satellite Communicator with Color Touchscreen Two-Way Texting Emergency SOS Messaging & Long Battery Life Up to 350 Hours with 10-min inReach® Tracking dropped to $349.00 (was $449.99 per Walmart) — 22% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Invicta Women s Pro Diver Gold Dial Watch - 17566 dropped to $60.75 (was $80.86 per Walmart) — 24% OFF!
+👀 Don't sleep on this 🤯 Bose Lifestyle Ultra Subwoofer Black dropped to $699.00 (was $899.00 per Walmart) — 22% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -168,7 +168,7 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Game of Thrones Puzzle — $24.97 (was $42.89 per Walmart), 41% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Melissa & Doug 19-Piece Deluxe Wooden Cooktop Set With Wooden Play Food Durable Pot and Pan — $32.99 (was $54.99 per Walmart), 40% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
@@ -177,8 +177,8 @@ Game of Thrones Puzzle — $24.97 (was $42.89 per Walmart), 41% off. It's #8 on 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Skechers Work Men s Delson 3.0 Tyoll No Tie Fit™ Slip Resistant Carbon Nano Toe Work Shoes — $66.15 (was $105.00 per Walmart), 37% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #shoes
+Invicta Men s 1513 I Force Collection Stainless Steel and Cloth Watch — $60.77 (was $80.94 per Walmart), 24% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
 
 ---
 
@@ -186,8 +186,8 @@ Skechers Work Men s Delson 3.0 Tyoll No Tie Fit™ Slip Resistant Carbon Nano To
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Invicta Men s Pro Diver Automatic Stainless Steel Watch 8929OB — $106.37 (was $154.09 per Walmart), 31% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #apparel
+Garmin inReach Mini 3 Rugged Compact Global Satellite Communicator with Color Touchscreen Two-Way Texting Emergency SOS Messaging & Long Battery Life Up to 350 Hours with 10-min inReach® Tracking — $349.00 (was $449.99 per Walmart), 22% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -195,8 +195,8 @@ Invicta Men s Pro Diver Automatic Stainless Steel Watch 8929OB — $106.37 (was 
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Invicta Women s Pro Diver Gold Dial Watch - 17566 — $60.75 (was $80.86 per Walmart), 24% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #jewelry
+Bose Lifestyle Ultra Subwoofer Black — $699.00 (was $899.00 per Walmart), 22% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -210,9 +210,9 @@ Invicta Women s Pro Diver Gold Dial Watch - 17566 — $60.75 (was $80.86 per Wal
 
 1. Hi-Vis 12600 Ranger Sun Hat - PVA Cooling Size 2XL/3XL — $12.10 (65% off)
 2. 2026 Topps Update Series Baseball Value Box — $24.97 (54% off)
-3. Shark SpeedStyle Essential Hair Dryer High-Velocity Powerful — $99.00 (50% off)
-4. Serta Cuddler Bolster Cat & Dog Bed Mocha Large — $35.00 (50% off)
-5. Spectra Premium CU2603 Automotive Radiator — $68.49 (48% off)
+3. Serta Cuddler Bolster Cat & Dog Bed Mocha Large — $35.00 (50% off)
+4. Spectra Premium CU2603 Automotive Radiator — $68.49 (48% off)
+5. Moda Brush Neon Nights 6pc Full Face Makeup Brush Kit — $10.98 (47% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -226,8 +226,8 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 1. Hi-Vis 12600 Ranger Sun Hat - PVA Cooling Si — $12.10
 2. 2026 Topps Update Series Baseball Value Box — $24.97
-3. Shark SpeedStyle Essential Hair Dryer High-V — $99.00
-4. Serta Cuddler Bolster Cat & Dog Bed Mocha La — $35.00
+3. Serta Cuddler Bolster Cat & Dog Bed Mocha La — $35.00
+4. Spectra Premium CU2603 Automotive Radiator — $68.49
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 21, 2026
+# SnagDaily Instagram kit — Nov 22, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -36,11 +36,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Miniland Eco Minimobil 9 Cm is just $19.98 (was $35.40 per Walmart)! That's 43% OFF — you save $15.42. 💰
+🔥 Today's steal — Super Mario Core 5Pck is just $8.99 (was $19.99 per Walmart)! That's 55% OFF — you save $11.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #1 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #toydeals #giftsforkids #kidsgifts
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder
 
 ---
 
@@ -48,7 +48,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Tomorrow X Together - Starkissed - Beomgyu Version - Music & Performance - CD is just $26.41 (was $44.62 per Walmart)! That's 40% OFF — you save $18.21. 💰
+✅ Price-checked find — Northlight Mrs. Claus Standing Commercial Christmas Figure with Gift Bag - 6 is just $183.99 (was $358.94 per Walmart)! That's 48% OFF — you save $174.95. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #2 on today's list. Prices verified at post time and can change fast!
 .
@@ -60,11 +60,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 Hot markdown alert — Stetson Legend Eau de Toilette Bold Cologne Fragrance for Men 3.4 fl oz is just $34.98 (was $59.00 per Walmart)! That's 40% OFF — you save $24.02. 💰
+🚨 Hot markdown alert — SAFAVIEH Whisper Zoja Solid Area Rug Light Grey/Ivory 8 x 10 is just $173.04 (was $334.00 per Walmart)! That's 48% OFF — you save $160.96. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #3 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
 
 ---
 
@@ -72,11 +72,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Worth a serious look — Leigh Country CP 98114 60 Qt. Coca-Cola Red Fishtail Logo Metal Patio Cooler is just $194.99 (was $303.80 per Walmart)! That's 35% OFF — you save $108.81. 💰
+👀 Worth a serious look — Hudson Baby Baby and Toddler Cozy Fleece Booties Brown Cream 0-6 Months is just $10.99 (was $20.75 per Walmart)! That's 47% OFF — you save $9.76. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #4 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -84,11 +84,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-💸 Deal of the day — LSU Tigers Sweatshirt Blanket is just $29.60 (was $41.99 per Walmart)! That's 29% OFF — you save $12.39. 💰
+💸 Deal of the day — Pure Balance Wild & Free Grain-Free Salmon & Pea Recipe Dry Dog Food 24 lbs is just $34.88 (was $64.81 per Walmart)! That's 46% OFF — you save $29.93. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #5 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #petdeals #petsofinstagram #petlovers
 
 ---
 
@@ -96,7 +96,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Eastern 50239 Direct Fit Catalytic Converter is just $331.19 (was $457.49 per Walmart)! That's 27% OFF — you save $126.30. 💰
+🔥 Today's steal — Enginetech C87504-STD Engine Premium Piston Ring Complete Set is just $84.71 (was $156.37 per Walmart)! That's 45% OFF — you save $71.66. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Nathan James Jasper 3-Shelf Solid Wood Boho Bookshelf Wall Mounted Bookshelf with Cabinet with Fluted Doors Natural Brown is just $293.00 (was $400.00 per Walmart)! That's 26% OFF — you save $107.00. 💰
+✅ Price-checked find — Old Spice 2-in-1 Face and Body Wash for Men Dragonblast Warm Woodsy Scent 24 fl oz is just $11.08 (was $20.15 per Walmart)! That's 45% OFF — you save $9.07. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds
 
 ---
 
@@ -120,7 +120,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 hand2mind Nestable Pan Balance dropped to $13.79 (was $25.99 per Walmart) — 46% OFF!
+🔥 STEAL ALERT 🤯 Radio Flyer Beast EZ Fold Maximum Capacity Heavy-Duty Kid & Cargo Gray Collapsible Utility Wagon dropped to $97.30 (was $139.00 per Walmart) — 30% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -132,11 +132,11 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Kingdom Of The Planet Of The Apes (Blu-ray + Digital Copy) 20th Century Fox Sci-Fi & Fantasy dropped to $20.02 (was $34.00 per Walmart) — 41% OFF!
+✅ PRICE CHECKED 🤯 Uswe 2150715 Patriot Series Backpack - Orange/Black dropped to $128.69 (was $164.99 per Walmart) — 22% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -144,11 +144,11 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 SkinCeuticals Hydrating B5 Gel Moisture Enhancing Serum 1.0 fl oz (30ml) dropped to $91.32 (was $116.14 per Walmart) — 21% OFF!
+🚨 PRICE DROP 🤯 Barrington Billiards 7.5 ft Pool Table Set with Cue Rack & Dartboard Burgundy dropped to $799.00 (was $999.99 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #beautydeals #selfcare #beautyfinds #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -156,11 +156,11 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Franklin Sports MLB Baseball Batting Gloves - Shok-Sorb X Batting Gloves for Baseball + Softball - Adult + Youth Padded Non-Sting Pairs - White - Adult Small dropped to $19.49 (was $34.99 per Walmart) — 44% OFF!
+👀 Don't sleep on this 🤯 Northlight 26 Shiny White Fabric Hexagonal Christmas Tree Collar dropped to $20.99 (was $38.93 per Walmart) — 46% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement #reels #reelsinstagram #dealreels #instareels
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #techdeals #gadgets #techfinds #reels #reelsinstagram #dealreels #instareels
 
 ---
 
@@ -168,7 +168,7 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-hand2mind Nestable Pan Balance — $13.79 (was $25.99 per Walmart), 46% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Radio Flyer Beast EZ Fold Maximum Capacity Heavy-Duty Kid & Cargo Gray Collapsible Utility Wagon — $97.30 (was $139.00 per Walmart), 30% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #toys
 
 ---
@@ -177,8 +177,8 @@ hand2mind Nestable Pan Balance — $13.79 (was $25.99 per Walmart), 46% off. It'
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Kingdom Of The Planet Of The Apes (Blu-ray + Digital Copy) 20th Century Fox Sci-Fi & Fantasy — $20.02 (was $34.00 per Walmart), 41% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
+Uswe 2150715 Patriot Series Backpack - Orange/Black — $128.69 (was $164.99 per Walmart), 22% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #accessories
 
 ---
 
@@ -186,8 +186,8 @@ Kingdom Of The Planet Of The Apes (Blu-ray + Digital Copy) 20th Century Fox Sci-
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-SkinCeuticals Hydrating B5 Gel Moisture Enhancing Serum 1.0 fl oz (30ml) — $91.32 (was $116.14 per Walmart), 21% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #beauty
+Barrington Billiards 7.5 ft Pool Table Set with Cue Rack & Dartboard Burgundy — $799.00 (was $999.99 per Walmart), 20% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
 
 ---
 
@@ -195,8 +195,8 @@ SkinCeuticals Hydrating B5 Gel Moisture Enhancing Serum 1.0 fl oz (30ml) — $91
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Franklin Sports MLB Baseball Batting Gloves - Shok-Sorb X Batting Gloves for Baseball + Softball - Adult + Youth Padded Non-Sting Pairs - White - Adult Small — $19.49 (was $34.99 per Walmart), 44% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
-#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #tools
+Northlight 26 Shiny White Fabric Hexagonal Christmas Tree Collar — $20.99 (was $38.93 per Walmart), 46% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+#walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #electronics
 
 ---
 
@@ -208,11 +208,11 @@ Franklin Sports MLB Baseball Batting Gloves - Shok-Sorb X Batting Gloves for Bas
 
 🔥 Today's Top 5 — swipe through, save for later 📌
 
-1. Miniland Eco Minimobil 9 Cm — $19.98 (43% off)
-2. Tomorrow X Together - Starkissed - Beomgyu Version - Music & — $26.41 (40% off)
-3. Stetson Legend Eau de Toilette Bold Cologne Fragrance for Me — $34.98 (40% off)
-4. Leigh Country CP 98114 60 Qt. Coca-Cola Red Fishtail Logo Me — $194.99 (35% off)
-5. LSU Tigers Sweatshirt Blanket — $29.60 (29% off)
+1. Super Mario Core 5Pck — $8.99 (55% off)
+2. Northlight Mrs. Claus Standing Commercial Christmas Figure w — $183.99 (48% off)
+3. SAFAVIEH Whisper Zoja Solid Area Rug Light Grey/Ivory 8 x 10 — $173.04 (48% off)
+4. Hudson Baby Baby and Toddler Cozy Fleece Booties Brown Cream — $10.99 (47% off)
+5. Pure Balance Wild & Free Grain-Free Salmon & Pea Recipe Dry  — $34.88 (46% off)
 
 Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. 💬 Comment a number and we'll DM that link!
 .
@@ -222,12 +222,12 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 46% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 55% OFF at Walmart! Which one are you grabbing? 👇
 
-1. Miniland Eco Minimobil 9 Cm — $19.98
-2. Tomorrow X Together - Starkissed - Beomgyu V — $26.41
-3. Stetson Legend Eau de Toilette Bold Cologne  — $34.98
-4. Leigh Country CP 98114 60 Qt. Coca-Cola Red  — $194.99
+1. Super Mario Core 5Pck — $8.99
+2. Northlight Mrs. Claus Standing Commercial Ch — $183.99
+3. SAFAVIEH Whisper Zoja Solid Area Rug Light G — $173.04
+4. Hudson Baby Baby and Toddler Cozy Fleece Boo — $10.99
 
 🔗 All of today's deals are in my bio → @snagdailydeals
 

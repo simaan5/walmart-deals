@@ -9,7 +9,6 @@
 - https://snagdaily.com/faq.html: FAQ: affiliate links, price freshness, saved deals
 - https://snagdaily.com/categories.html: Shop deals by category
 - https://snagdaily.com/this-week.html: This week's best verified Walmart deals, each with its price date and live/ended status
-- https://snagdaily.com/walmart-home-deals.html: Walmart Home deals — dated prices, live grid, buying guidance
 - https://snagdaily.com/walmart-tools-deals.html: Walmart Tools & DIY deals — dated prices, live grid, buying guidance
 - https://snagdaily.com/walmart-toys-deals.html: Walmart Toys deals — dated prices, live grid, buying guidance
 - https://snagdaily.com/walmart-electronics-deals.html: Walmart Electronics deals — dated prices, live grid, buying guidance

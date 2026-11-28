@@ -1,4 +1,4 @@
-# SnagDaily Instagram kit — Nov 27, 2026
+# SnagDaily Instagram kit — Nov 28, 2026
 
 ## POST 📌 — pinned1_post.png
 
@@ -96,11 +96,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 Today's steal — Fit for Me by Fruit of the Loom Women s Plus Size Cotton Brief Underwear 6-Pack is just $14.98 (was $22.98 per Walmart)! That's 34% OFF — you save $8.00. 💰
+🔥 Today's steal — TORCHSTAR 8W Dimmable PAR20 LED Spot Light Bulbs for Recessed Track Lighting 50W Equivalent Damp Location Available 4000K Cool White E26 Medium Screw Base UL & Energy Star Listed Pack of 4 is just $14.99 (was $24.30 per Walmart)! That's 38% OFF — you save $9.31. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #6 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #diy #toolsofthetrade #homeimprovement
 
 ---
 
@@ -108,11 +108,11 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ Price-checked find — Mainstays All in One Reversible Comforter and Sheet Set 7-Piece Full Gray Stripe is just $34.82 (was $49.93 per Walmart)! That's 30% OFF — you save $15.11. 💰
+✅ Price-checked find — Fit for Me by Fruit of the Loom Women s Plus Size Cotton Brief Underwear 6-Pack is just $14.98 (was $22.98 per Walmart)! That's 34% OFF — you save $8.00. 💰
 
 🔗 Link in bio → snagdaily.com/today — it's #7 on today's list. Prices verified at post time and can change fast!
 .
-#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #homefinds #homedeals #cleantok
+#walmartdeals #dealsoftheday #snagdaily #savingmoney #deals #dealalert #couponcommunity #budgetfinds #frugalliving #dealfinder #fashiondeals #styledeals #ootd
 
 ---
 
@@ -120,7 +120,7 @@ Checked Oct 28, 2026 — limited-time deals; availability changes fast.
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🔥 STEAL ALERT 🤯 Yankee Candle 22 oz Original Large Jar Scented Candle Pear Blossom And Sweet Hyacinth Pink dropped to $19.97 (was $34.01 per Walmart) — 41% OFF!
+🔥 STEAL ALERT 🤯 My Texas House Green Floral Faux Fur Washable Indoor Area Rug 7 6 x 10 dropped to $160.00 (was $199.97 per Walmart) — 20% OFF!
 
 Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -132,7 +132,7 @@ Save this 📌 — it's #8 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-✅ PRICE CHECKED 🤯 Cirkul 26oz StrawSip Flip Water Bottle Stainless Steel Double Wall Insulated Onyx (Black) dropped to $19.98 (was $30.00 per Walmart) — 33% OFF!
+✅ PRICE CHECKED 🤯 Yankee Candle 22 oz Original Large Jar Scented Candle Pear Blossom And Sweet Hyacinth Pink dropped to $19.97 (was $34.01 per Walmart) — 41% OFF!
 
 Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -144,7 +144,7 @@ Save this 📌 — it's #9 at snagdaily.com/today (🔗 link in bio → @snagdai
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-🚨 PRICE DROP 🤯 Mainstays All in One Reversible Comforter and Sheet Set 5-Piece Twin White Multi Floral dropped to $29.72 (was $41.94 per Walmart) — 29% OFF!
+🚨 PRICE DROP 🤯 Superior Zuri Blackout Curtains Grommet Header Set of 2 42 X 84 Ivory dropped to $25.88 (was $76.50 per Walmart) — 66% OFF!
 
 Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -156,7 +156,7 @@ Save this 📌 — it's #10 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — I earn a commission on qualifying purchases (no extra cost to you).
 
-👀 Don't sleep on this 🤯 Yankee Candle 22 oz Original Large Jar Scented Candle Amethyst Air Purple dropped to $19.97 (was $27.99 per Walmart) — 28% OFF!
+👀 Don't sleep on this 🤯 Mainstays Farmhouse Faux Sisal Olefin Red Border Indoor Area Rug 5 x 7 dropped to $43.90 (was $65.00 per Walmart) — 32% OFF!
 
 Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagdailydeals). 💬 Or comment LINK and we'll DM it to you. New deals every day!
 .
@@ -168,7 +168,7 @@ Save this 📌 — it's #11 at snagdaily.com/today (🔗 link in bio → @snagda
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Yankee Candle 22 oz Original Large Jar Scented Candle Pear Blossom And Sweet Hyacinth Pink — $19.97 (was $34.01 per Walmart), 41% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+My Texas House Green Floral Faux Fur Washable Indoor Area Rug 7 6 x 10 — $160.00 (was $199.97 per Walmart), 20% off. It's #8 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
@@ -177,7 +177,7 @@ Yankee Candle 22 oz Original Large Jar Scented Candle Pear Blossom And Sweet Hya
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Cirkul 26oz StrawSip Flip Water Bottle Stainless Steel Double Wall Insulated Onyx (Black) — $19.98 (was $30.00 per Walmart), 33% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Yankee Candle 22 oz Original Large Jar Scented Candle Pear Blossom And Sweet Hyacinth Pink — $19.97 (was $34.01 per Walmart), 41% off. It's #9 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
@@ -186,7 +186,7 @@ Cirkul 26oz StrawSip Flip Water Bottle Stainless Steel Double Wall Insulated Ony
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Mainstays All in One Reversible Comforter and Sheet Set 5-Piece Twin White Multi Floral — $29.72 (was $41.94 per Walmart), 29% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Superior Zuri Blackout Curtains Grommet Header Set of 2 42 X 84 Ivory — $25.88 (was $76.50 per Walmart), 66% off. It's #10 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
@@ -195,7 +195,7 @@ Mainstays All in One Reversible Comforter and Sheet Set 5-Piece Twin White Multi
 
 #ad #WalmartPartner — commissions earned on purchases.
 
-Yankee Candle 22 oz Original Large Jar Scented Candle Amethyst Air Purple — $19.97 (was $27.99 per Walmart), 28% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
+Mainstays Farmhouse Faux Sisal Olefin Red Border Indoor Area Rug 5 x 7 — $43.90 (was $65.00 per Walmart), 32% off. It's #11 on today's list → snagdaily.com/today (link in bio). 💬 Comment LINK for the direct link!
 #walmartfinds #walmartdeals #dealtok #walmartclearance #bargainhunter #deals #home
 
 ---
@@ -222,7 +222,7 @@ Every link → snagdaily.com/today (🔗 in bio) — numbers match the list. �
 
 ## REEL 5 — reel_5.png
 
-🔥 TODAY'S TOP DEALS — up to 55% OFF at Walmart! Which one are you grabbing? 👇
+🔥 TODAY'S TOP DEALS — up to 66% OFF at Walmart! Which one are you grabbing? 👇
 
 1. Shoe Laces 63 L Kevlar BLACK — $11.99
 2. SaluSpa® Madrid Smart AirJet Outdoor Round I — $398.00
